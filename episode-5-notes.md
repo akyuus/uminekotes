@@ -1,0 +1,127 @@
+# CURRENT STATUS:
+
+-   First twilight hasn't occurred yet
+-   Everyone is still alive
+-   Maria is in the garden after Rosa went Rosa mode
+-   The typhoon has arrived
+-   Maria is searching for the rose
+
+**[12-1-22]**
+
+-   She (Maria) is approached by an unknown person (Erika?) in the rose garden
+-   _Genji_: Someone arrived at the mansion, claiming to have drifted here after an accident at sea\*
+-   > Is this believable? Note that the drifter is claiming this\*
+-   Krauss and Natsuhi are being surprisingly accommodating
+-   **ERIKA HAS ARRIVED**
+-   Probs doesn't matter, but her boat was named Eternal Maid II and she arrived thanks to several miracles (Bern)
+-   Erika is Bern as a game piece?
+-   Beatrice cannot object to Erika's existence because she is a vegetal :(
+-   # I (Bern) proclaim that Furudo Erika is the detective
+-   # The detective isn't a culprit. No proof is needed to show this
+-   > Knox's 7th
+-   _Lambda_: There was an exception clause in the original
+-   > Huh? What does she mean here?
+-   # Furudo Erika had no influence on any of Beato's games before now
+-   # She does not exist in the worlds before this one, nor does she influence them
+-   # Furudo Erika only increases it by one person. Besides her, the number of people on this island is exactly the - same as it was in previous games
+-   > So there are 18 people. Kinzo is dead after all.
+-   # Ths number of people in this parlor now is equal to the total number of people on this island
+-   > Again, 18. But that wasn't said in red.
+-   Erika will borrow the bedroom next to the cousin's room on the 2nd floor of the guesthouse
+-   Genji contacted the police and her family
+-   > VERY important to note that the police could actually be contacted at this time
+-   She fell from a boat UNOBSERVED by the others on board
+-   Bernkastel and Ronove appear and note that Erika **is a witch**
+-   > Random thoughts: Ronove is an analogue for Genji, and Virgilia transformed into Kumasawa back in Episode 3
+-   > Would it be possible for Beatrice to be Shannon's magical counterpart?
+-   > This might line up with something discussed on the beach back in Episode 3, where it was mentioned
+-   > Shannon was Battler's first love 6 years ago or whatever, and Shannon distinctly remembered everything
+-   > Also worth nothing that this is the Beatrice of the game board
+-   _Beatrice_: Let's see how good Bern's next piece after Ange is
+-   > She's aware of Ange's existence in the prior game.
+-   _Eva_: **Don't tell me you secretly called your illegitimate child to today's family conference, Rudolf?**
+-   > Okay, this is probably foreboding. I'm bolding this.
+-   If you solve the epitaph, you can become the next Head
+-   > Remember, we're wondering why the epitaph is there to begin with.
+
+-   > **SHE SAID THE LINE**
+
+-   _Erika_: By using deductive reasoning based upon my theory, it seems likely that Kinzo doesn't want the successor, Krauss, to inherit that position too smoothly
+-   > Please kill yourself
+
+-   The sengoku commander Hideyoshi admired, Toyotomi Hideyoshi, made his son in law Hidegetsu commit seppuku
+-   Rumored to have done this to make Hideyori, his real son, his true heir
+-   _Erika_: If Kinzo wanted Krauss to be the successor, he wouldn't put out the epitaph like that for everyone to see
+-   Maria brings up the golden land when asked what she'd do with 20 billion yen
+-   Erika is about to solve the epitaph
+-   Battler, Bern, and Lambda are dragged into fucked up nothing void universe
+-   _Lambda_: You mustn't lose your purpose, you'll fall into the depths of eternity and become a scrap of ocean seaweed
+-   > This is what happened when Beatrice denied Battler's existence at the end of Episode 4
+-   Fragments are fragments of worlds
+-   > Oh we're back to episode 3 when Eva solved the epitaph
+-   _Evatrice_: The 'beloved hometown' definitely won't betray our expectations. The only past Father held dear happened in his childhood years.
+
+-   The hometown isn't Odawara
+-   Lambda ensured that there would be no explicit mention of the hometown
+-   > What do we know so far? It isn't Odawara.
+-   > Kinzo really likes Areca nuts. Specifically in relation to Vietnam, where they're a symbol of lovers/marriage
+-   _Lambda_: If it wasn't a hard riddle, **there'd be no point to it**.
+-   > How is this a hint?
+-   > [1] The purpose of the riddle is intrinsically linked to its difficulty? So like a test?
+
+-   > We need to figure out the hometown.
+-   _Evatrice_: It didn't have to be a river with water flowing down it. If the word sweetfish is too complicated, why not forget about it? Think of a river. A river. Linking it with a 'family tree' wasn't a bad idea.
+-   > What are some things that can flow through a hometown? Family tree is interesting. Maybe the moving of family?
+-   > Like, maybe the mansion is something to consider here. There's a flow of descendants that come and go.
+-   Eva knew where the hometown was, so she ignored the sweetfish part. We don't know the hometown though.
+-   > Does this mean we need to focus on that part?
+-   > Okay... so not literal sweetfish, since we're not dealing with a literal river. What's so special about sweetfish?
+-   Eva verified she was correct after going to the library and looking at... an atlas? And an encyclopedia?
+-   > Make sure we know what books she used. We can work backwards
+-   As you travel down, you'll see a village
+-   > Eva had a flash of insight and realized what the village _could_ be
+-   She questioned whether it would be "okay" if this was the answer.
+-   > Does this mean it involves a really fucked up or morally odd assumption?
+-   The [village|shore|idk] does not have 6 characters. But there might be a way to read it with six characters.
+-   > Still pretty far off from finding the key itself though...
+-   The key is six characters long.
+-   > The key chooses 6. The 6 in question are the characters of the key
+-   By the first twilight, we have the 6 characters of the key, and some extra ones.
+-   > The two who are close... what could that mean?
+-   > Oh, we need to remove the key's characters from something that's AT LEAST 6 characters long. We don't need more keys...
+-   > That is one option. "The first twilight".
+-   > The second twilight says "tear apart the two who are close". What could this mean in an alphabetic context?
+-   > Maybe it means separating out two letters that aren't spaced out? But we still don't have a key...
+-   > f irst fi rst fir st t wilight twi light twil ight twili ght
+-   Third twilight, praise my noble name
+-   > Insert "kinzo" somewhere?
+-   > Make it "look" like Kinzo somehow? Goldsmith?
+-   Original list of characters is 11 or 13 characters long? In other words, subtract 6 to get 5 and be left with "Kinzo"?
+-   > So this third twilight was like a way to check your work...
+-   > Unless it's 13 characters long. In which case we need to crush the two characters instead of separating them
+-   > One potential option is translating it to Thai: "S̄nṭhyā ræk" is 11 characters including the space
+-   # ABOVE WAS REVEALED TO BE WRONG
+-   **POSSIBLE LOCATIONS**
+    -   China
+    -   Korea
+    -   Taiwan
+    -   Hong Kong
+    -   Vietnam
+    -   Cambodia
+    -   Laos
+    -   Malaysia
+    -   Philippines
+    -   Singapore
+    -   Myanmar
+    -   Guam
+-   If we assume that Kinzo wrote the epitaph, then the reasoning on [1] is sound. But what if Beato wrote it?
+-   > Beatrice WANTS them to solve the epitaph. She gains something from it. But why make it so hard then?
+-   > Let's think for a second. What does Beato gain by making it so difficult?
+-   > [2] Oh... we can think of it as a test again. She wants to find a particular person? The person she's looking for would be able to solve the epitaph.
+-   > But who exactly is she looking for, and why? And how is this connected to the sin Battler committed six years ago?
+-   Kinzo died, Beatrice carried out his will as the alchemist, following the epitaph.
+-   > Eva is the only one who solved it, and she was the sole survivor of game 3. Well, more accurately, she murdered the only other person who solved it, and became the sole survivor. Was the gold a true motive? No, she must have had other reasons for doing so.
+-   > Basic idea: Beatrice carried out Kinzo's succession test, and Eva, naturally, became the new Head. But what does SHE gain for that? This was just an act of loyalty more than anything else
+-   > What other reasons could there be? Check line [2]
+
+[12-3-22]
