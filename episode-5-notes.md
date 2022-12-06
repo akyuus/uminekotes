@@ -535,6 +535,8 @@
 
     > Why such a specific amount of time? Some murder is going to happen and an alibi needs to be secured?
 
+    > Wait... this is more justification for Krauss being behind everything. He's trying to give Natsuhi alibis so she can avoid suspicion!
+
     > It's been established that this is Lambda's piece. Erika started off the chapter by claiming that Natsuhi was the culprit. That might have been an incorrect claim, and Lambda's moves here are securing Natsuhi's innocence.
 
 -   Rokkenjima has been cut off from the outside world, and the closed circle has been completed. **The authority of the detective piece is totally guaranteed**.
@@ -555,3 +557,5 @@
     > Let's commit to that theory about Krauss's blood not belonging to him. It definitely would have been possible for him to perform the murders and carry off the 4 corpses using the master key from Genji.
 
     > Another important note: Krauss mentioned a trump card last night... likening it to a treasured sword. Awfully similar to the hypothetical murder weapon.
+
+    > ONE MORE THING: Krauss is one of the few people who actually knows what happened 19 years ago.
