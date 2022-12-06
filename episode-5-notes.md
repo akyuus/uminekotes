@@ -6,7 +6,7 @@
 -   The typhoon has arrived
 -   Maria is searching for the rose
 
-**[12-1-22]**
+# [12-1-22]
 
 -   She (Maria) is approached by an unknown person (Erika?) in the rose garden
 -   _Genji_: Someone arrived at the mansion, claiming to have drifted here after an accident at sea\*
@@ -73,13 +73,19 @@
     > [1] The purpose of the riddle is intrinsically linked to its difficulty? So like a test?
 
     > We need to figure out the hometown.
-    > _Evatrice_: It didn't have to be a river with water flowing down it. If the word sweetfish is too complicated, why not forget about it? Think of a river. A river. Linking it with a 'family tree' wasn't a bad idea.
+
+    _Evatrice_: It didn't have to be a river with water flowing down it. If the word sweetfish is too complicated, why not forget about it? Think of a river. A river. Linking it with a 'family tree' wasn't a bad idea.
+
     > What are some things that can flow through a hometown? Family tree is interesting. Maybe the moving of family?
+
     > Like, maybe the mansion is something to consider here. There's a flow of descendants that come and go.
 
 -   Eva knew where the hometown was, so she ignored the sweetfish part. We don't know the hometown though.
+
     > Does this mean we need to focus on that part?
+
     > Okay... so not literal sweetfish, since we're not dealing with a literal river. What's so special about sweetfish?
+
 -   Eva verified she was correct after going to the library and looking at... an atlas? And an encyclopedia?
     > Make sure we know what books she used. We can work backwards
 -   As you travel down, you'll see a village
@@ -128,7 +134,7 @@
     > Basic idea: Beatrice carried out Kinzo's succession test, and Eva, naturally, became the new Head. But what does SHE gain for that? This was just an act of loyalty more than anything else
     > What other reasons could there be? Check line [2]
 
-[12-3-22]
+# [12-3-22]
 
 -   _Rosa_: Instead of the first twilight, it's the tenth twilight that bugs me.
     > Probably referring to the "once and for the last time" part
@@ -291,11 +297,261 @@
 -   # Her goal is not to make someone experience fear. And it isn't to have revenge on someone either.
     > She's trying to prove or show something, like I said.
 -   _Battler_: What does she want from me that would be meaningless to her?
+
     > This might be the wrong way to look at it. There is meaning, but it comes from the consequences of her actions, not the actions themselves(?)
+
     > No, that's stupid. Well, maybe not. We'll see
+
     > Ah, the game itself confirmed my thinking. Cool.
--   > Let's think about the end of episode 4 again. Battler forgot his sin. Beatrice explicitly stated that everyone's deaths are a result of this particular sin. In other words, she carried them out because of it, implicitly.
+
+    > Let's think about the end of episode 4 again. Battler forgot his sin. Beatrice explicitly stated that everyone's deaths are a result of this particular sin. In other words, she carried them out because of it, implicitly.
+
     > We'll go with this. The sin is the reason the murders occur at all. And yet, solving the epitaph prevents the murders from occurring.
+
     > Since Beatrice isn't out for revenge, I think we can assume that solving the epitaph and the murders themselves are just some means to an end. Something is proven to her either way.
+
     > My best theory is that Battler's sin is proven to be remembered... but that can't be it. After all, the epitaph has been proven twice now and Battler still has no idea what he even did...
--   # Beato never committed murder for the sake of pleasure
+
+    # Beato never committed murder for the sake of pleasure
+
+# [12-4-22]
+
+-   _Battler_: Next time you want to write a love letter, I suggest you just write 'I love you'. If you make it too roundabout and confusing, no one's gonna be able to figure it out.
+
+    > This is all... a love letter? How?
+
+    > I can see one reasonable way to look at this. Solving the epitaph proves that Battler(?) loves Beatrice but failing to solve it proves otherwise? Idk
+
+-   "It was never specified that ownership of the gold would be handed over to the solver"
+-   The adults decide that the conference needs to be recorded, so Rudolf pulls out a tape set.
+
+    > Forgery is impossible with this
+
+    > Somehow I doubt that
+
+-   Kinzo listens to a lot of "sophisticated" music apparently
+-   Kanon and Shannon come in with black tea
+    _Kyrie_: Become sacrifices for us now that we crave something to talk about
+-   Unknown individual knocks on the door to the conference as the clock strikes 24:00
+
+    > Erika? That seems to be the only possibility here. The cousins are definitely out of the question.
+
+-   Krauss and Natsuhi are discussing their options, since they essentially have none whatsoever.
+-   Natsuhi thinks they should arrange for Genji to tell everyone that Kinzo went for a walk in the forest early in the morning. Arrange for his room to be 'empty'
+-   Krauss doubts this plan's effectiveness because Eva and the others will label them as suspicious
+    _Krauss_: There's nothing wrong with persisting until the last possible second tomorrow. If we're able to make it through safely, we won't have to lose anything. There's no need to get impatient and use that trump card
+    > So Natsuhi is prepared to make Kinzo disappear now. She's willing to tank the social damage
+-   Natsuhi has **both** of the keys to the study in her possession.
+    _Krauss_: Let's wait for the very last moment before using our disappearance trump card. It's like a last-resort treasured sword. It's best when it remains in its sheath.
+    > Ah, like the red truth.
+-   Another phone call comes for Natsuhi.
+    > The same "Battler" (not Battler) again?
+-   This man wants revenge for what happened 19 years ago. This was precisely one year before Jessica and Battler were born.
+-   Natsuhi's life didn't really begin until Jessica was born
+-   Something from the last year of that hateful period is speaking vengeful words from the other end of the phone
+-   Decides to transfer the call to her room. Tells Krauss she's going to bed, then locks the door
+-   There's no special meaning in locking the door when you enter your own room... at least that's what she told herself.
+-   Once again, the man calls her mother.
+    > I find it hard to believe that Natsuhi is this person's actual mother. Like, how do you hide a pregnancy for that long? It's possible she cheated on Krauss at some point, but she can't hide something like a pregnancy.
+-   The man knows about her headache. He also knows she's getting sick of the family conference.
+
+    > So this probably has to be someone familiar with the Ushiromiya family.
+
+    > It's also worth noting that Battler is not Asumu's child. Furthermore, we can't necessarily trust the information being given here.
+
+    > Here's a theory: Jessica and Battler's mothers are inverted. In other words, Battler is Natsuhi's child, and Jessica is Asumu's. That would solve the troublesome red from the end of episode 4 and give a plausible idea for what the sin from 19 years ago could be.
+
+    > But who the hell is this person?
+
+-   _Guy_: Your name is Natsuhi. It has the kanji for a season (夏) in it. Pretty nice name
+-   Natsuhi's favorite season is autumn, not summer as the kanji suggests
+-   "because it's easy to pass time in. no other reason"
+    > Ok
+-   12:07 AM, the man asks about the clock in her room. Why does he know about it?
+    > He has either been in there before, or someone told him
+-   Threatens to tell Krauss and Jessica about what happened 19 years ago
+
+    > If Natsuhi has a clear conscience, she wouldn't care about this
+
+    > So something probably happened
+
+-   Natsuhi lifts the clock and finds a playing card
+    > What the hell is this? Something that makes her happy...?
+-   _Guy_: How dare you act like a normal, neat-freak mother. You make me want to vomit, murderer. Do you want that to land on your husband and daughter as well?
+-   My wounds could not be healed with any amount of money. But there is a medicine.
+    > Maybe Natsuhi gave birth to someone before Jessica and he was discarded for whatever reason?
+-   The only medicine is my hatred.
+    > This guy is like a fail Ange
+-   The guy is at the family conference. And he hates Natsuhi because of something that happened 19 years ago.
+    > He sounds like Battler, but he probably isn't
+-   He knows who Erika is, and he could have come here before the typhoon
+-   _Guy_: I will not appear in front of anyone until you introduce me. It is useless to try and search for me. Unless you want to expose me and introduce me to everyone? Introduce me to Jessica too. **Tell her I am her older brother by one year**.
+-   Guy is forcing Natsuhi to stay in the room for the rest of the night and sleep
+    > Either giving her an alibi for the first twilight, or drawing suspicion to her
+-   The card had the kanji for autumn, and some pattern like a tarot card
+
+    > What could this be?
+
+    > Could this mysterious individual have planted it there?
+
+-   Knock at the door to the conference, nobody knows who it was. Envelope appears there
+-   The envelopes are in the study. Natsuhi has both of the keys.
+    > Someone would need access to it before she got the keys, which was just after the gold was discovered
+-   Letter from Beatrice acknowledges that he gets the gold and is the new Head
+    > Was Kinzo's ring on his corpse when he died?
+    > Who had it, if it wasn't?
+-   Supposedly, Krauss couldn't have left it.
+    > We don't know that for sure. I mean, by doing this, he could have diverted pressure from himself and avoid his embezzlement from being discovered.
+-   Fast-forward to 3:05 AM
+-   Conference continued until then. No actual conclusion was reached. People just argued about bullshit
+-   Gohda, Nanjo, and Erika are still awake
+-   Rosa returned to the guesthouse at 1:00 AM and immediately went to bed
+-   Rudolf wants to talk about something important tomorrow. It's about Battler.
+    > Almost certainly about how Battler isn't Asumu's kid
+-   "If I tell you about this, I'll probably be killed."
+-   "It's about your birth."
+    > Yep, called it.
+-   Kinzo gave up on Natsuhi and started donating to many charities
+-   One was the Fukuin House, where many pieces of "furniture" came from
+-   Kinzo employed kids from there with exceptional grades as servants
+
+    > Wait... I thought Kanon said he wasn't educated?
+
+    > It's worth doubting Kinzo's supposed intentions here
+
+-   Shannon, Kanon, Lunon, Manon, Leion.
+-   Supposedly, Kinzo wanted to empower these servants and spread their wings in society
+-   _Beatrice_: I see. So, an adopted child...
+
+    > Alright, I understand now. Natsuhi didn't give birth to someone other than Jessica, just as I originally suspected. Rather, her desire to become a mother made her adopt a servant, and the man over the phone must be said servant.
+
+    > This would explain how he knows the layout of the mansion.
+
+    > Natsuhi must have... fired him? Discarded him somehow. Maybe because she finally became pregnant, and made it clear that he was just a placeholder until she could actually have her own child.
+
+    > Oh nevermind.
+
+# [12-5-22]
+
+-   Kinzo ordered Natsuhi to raise a baby as her own, in order to succeed Krauss.
+-   Natsuhi hated her body, not Kinzo.
+-   Gives the baby to an older servant because she didn't like the crying.
+    -   Wanted the servant to take the baby far away, and never return
+    -   Servant takes the baby to the cliff Ange was at in episode 4
+    -   Supposedly, a demon lured the servant there
+    -   Then the servant and baby fell off the cliff
+        > Worth noting that this is the second time characters have died this way
+-   _Beatrice_: You are sinless. Humans are sinless. You can even say that I killed them. No, I did kill them!
+
+    > Interesting. She's trying to take responsibility and absolve Natsuhi.
+
+    > This is hard to explain, but maybe Beatrice is some kind of "entity" on which to blame catastrophes like these?
+
+-   _Ronove_: If you can't accept it as an accident, blame it on us. That's why demons exist.
+-   Beatrice begins to weave a story where she lured the servant and baby to the cliff
+
+    > I am less concerned with why she's doing this, and more so questioning what is actually happening here. Whose thoughts are these, and who's trying to prove themselves innocent?
+
+    > I imagine this wasn't just some freak accident. If it was, then why would this vengeful stranger be so... vengeful?
+
+-   Beatrice lured them into the Golden Land and Gaap gapped them into the air, killing both
+
+    > So Gaap is just a way of showcasing falls? I guess that makes sense. We'll need to contextualize her other appearances using this.
+
+    > General idea is this: Beatrice lured them (not really, they were probably lured or forced to go by Natsuhi) then Gaap made them fall to their deaths. But that was just the cliff
+
+-   _Natsuhi_: When I spotted the two of them on the rocks below, I went pale.
+    > We can question why she was there in the first place, but judging by Kinzo's response, I'm not sure Natsuhi actually did anything.
+-   _Kinzo_: How long will you struggle? How long will it be before you're mine? I have no interest in an empty cage. Throw it away!
+    > Does the empty cage refer to the baby? I'm fairly certain he's referring to an empty vessel for Beatrice, but what does the baby have to do with that?
+-   Beatrice definitely killed the baby **in the magic world**. However, you might find out that it's alive in the world of Humans. Whether it's really **alive or not**, right?
+-   Erika is Bern's piece. Whose piece is the man from 19 years ago then?
+
+    > Once again, if Natsuhi had nothing to hide, why would this man be so confident?
+
+    > Not to put her in a Kafka trap, but I doubt this man would have such an iron grip over her if he didn't actually have some huge sin to expose.
+
+-   Turns out Lambda was the one calling. What?
+    > Her intention was to keep Natsuhi from leaving her room that night. Giving her an alibi, I guess. Or somehow drawing suspicion to her.
+-   _Bern_: Both Natsuhi and Beato are like the guts of a filthy truth wrapped up in a bit of thin skin. Tearing that to bits and dragging the insides out is one of our few pleasures.
+    > She's basically saying that she likes to solve mysteries. She's just a little gross about it.
+-   Beatrice's piece is going to be sacrificed
+-   Lambda and Bern have totally taken over the game, and they aren't going to utilize Beatrice or her furniture as actual pieces anymore. Just pins.
+-   Furthermore, it was outright stated that Beatrice was just an illusion. Not that the confirmation was necessary.
+    > Really have to wonder what Beatrice was trying to do here. She truly wanted to show Battler something, and I guess 4 attempts was enough to make her give up. Battler still doesn't understand what he's trying to tell her.
+-   This tale was supposed to be one that Beatrice invited Battler to see. But the host has been lost, and there are no longer any guests. Neither are around in this horrible tale.
+    > So I guess this is why it's called Answer Arcs. Bern is just going to rip apart all the illusions.
+
+# October 5th, 1986; 7:00 AM
+
+-   Probs not important, but the games were probably playing Sevens with the cards.
+
+# FIRST TWILIGHT BEGINS
+
+-   George is found dead in his bed
+-   Neck split wide open
+-   Maria, Jessica, and Rosa died similarly. Rosa was in Maria's bed.
+-   No other wounds on any of the cadavers
+    > Also worth noting that Natsuhi has an alibi... probably. I doubt she left her room.
+
+# _Erika_: Detective's Authority. The detective has the right to inspect all crime scenes. Stand back, Ushiromiya Battler. This is an official privilege of this game, which the human side has accepted.
+
+-   Kanon fell asleep in the servant room and never saw Genji between that time, and about 8 the next morning
+-   A small strip of packing tape was stuck along the frame of the door to the servant waiting room, almost as though it was sealing the door shut.
+-   Furthermore, there were notches made with scissors along the center of the packing tape, so that if you opened the door only a slight amount, it would be torn apart.
+-   There was also a signature written across the packing tape in thin pen. It's too intricate to determine whose it is.
+    > Why would someone even write their signature on the tape? Maybe someone wanted to frame another person?
+    > Does the tape say something when ripped apart along the notches?
+-   Genji died the same way. Belphegor notes that you need a long blade to make a cut this deep.
+
+    > Wait wait wait wait. The stakes correspond to other people here. Let's remember the first 4 murders:
+    > **STAKES PRESENT**: Mammon, Asmodeus, and Satan. The three people there were Eva, Hideyoshi, and Nanjo. I don't really know who corresponds to who, but what really matters is...
+
+    > Belphegor was told to report to Lucifer, and then Kumasawa dashed out. The one who asked her to do so was Leviathan, and Kanon was the only other one there.
+
+-   There was a clunking, clattering noise, as though it was taking a lot of effort to hand the receiver over.
+
+    > It really shouldn't be that difficult, right?
+
+    > Unless... this isn't a proper phone call.
+
+    > The clunking and clattering could have been someone swapping out tapes in a tape deck, with a receiver just being held. In other words, this is just a recording being played back. That would also explain why Krauss didn't respond to her voice.
+
+    > Let's go with that. If this is the case, then I see two options here:
+    >
+    > > Krauss recorded those lines intentionally, without being tied up at all
+    > > Krauss was actually tied up at some point and recorded
+
+    > I mean, those things are obvious. But the first one implies he's complicit in something. Who does that, after all?
+
+    > The motive would also be pretty clear. After all, he has every reason to try and murder everyone off to save his ass.
+
+-   His eyes and ears are covered, so you won't be able to talk.
+    > Hmm... okay.
+-   Two conditions given to Natsuhi:
+    1. Do not tell anyone that he has Krauss
+    2. At 1:00 today, go to the foremost guest room on the 1st floor of the mansion and hide in the closet. If you can hide there for an hour without anyone finding you, you win.
+-   It doesn't really matter if she's found. She needs to play along for Krauss' safety to be guaranteed.
+
+    > Why such a specific amount of time? Some murder is going to happen and an alibi needs to be secured?
+
+    > It's been established that this is Lambda's piece. Erika started off the chapter by claiming that Natsuhi was the culprit. That might have been an incorrect claim, and Lambda's moves here are securing Natsuhi's innocence.
+
+-   Rokkenjima has been cut off from the outside world, and the closed circle has been completed. **The authority of the detective piece is totally guaranteed**.
+-   Everyone has been accounted for in the parlor **except** for Krauss (and Kinzo, but y'know)
+-   No 19th person can exist on this island. So it's not possible for the unknown man to exist.
+    > So who is he? He would need to be one of the 18. (It could still be Erika. The only stipulation was that the detective cannot be the culprit. There's no evidence that the man is the culprit)
+-   Krauss's room was empty. The bed was too, but massive bloodstains similar to the other crime scenes remained.
+    > This further supports that tape theory. He was likely recorded, then murdered.
+-   No corpse for Krauss. We can't be sure he's dead.
+    > There's also ths possibility that this blood wasn't his.
+-   Krauss's door was unlocked. This is unusual.
+-   Keys don't really matter. Genji's master key is missing. Locks don't matter.
+
+-   Everyone returns to the guesthouse and discovers that **all 4 corpses have gone missing**.
+
+    > Krauss is the only one truly unaccounted for. Furthermore, we know the culprit (in this instance) must have Genji's master key.
+
+    > Let's commit to that theory about Krauss's blood not belonging to him. It definitely would have been possible for him to perform the murders and carry off the 4 corpses using the master key from Genji.
+
+    > Another important note: Krauss mentioned a trump card last night... likening it to a treasured sword. Awfully similar to the hypothetical murder weapon.
