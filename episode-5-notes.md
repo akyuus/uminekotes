@@ -114,7 +114,7 @@
 -   **POSSIBLE LOCATIONS**
     -   China
     -   Korea
-    -   Taiwan
+    -   # Taiwan
     -   Hong Kong
     -   Vietnam
     -   Cambodia
@@ -518,8 +518,9 @@
     > The clunking and clattering could have been someone swapping out tapes in a tape deck, with a receiver just being held. In other words, this is just a recording being played back. That would also explain why Krauss didn't respond to her voice.
 
     > Let's go with that. If this is the case, then I see two options here:
-    >
+
     > > Krauss recorded those lines intentionally, without being tied up at all
+
     > > Krauss was actually tied up at some point and recorded
 
     > I mean, those things are obvious. But the first one implies he's complicit in something. Who does that, after all?
@@ -559,3 +560,122 @@
     > Another important note: Krauss mentioned a trump card last night... likening it to a treasured sword. Awfully similar to the hypothetical murder weapon.
 
     > ONE MORE THING: Krauss is one of the few people who actually knows what happened 19 years ago.
+
+# [12-7-22]
+
+-   _Bern_ All of us moved together.
+    > Confirming that everyone was accounted for except for Krauss.
+-   _Bern_ [BLUE TRUTH]: The victims aren't actually dead. They pretended to be dead, then secretly hid themselves somewhere. After all, you haven't proclaimed anyones deaths with the red truth.
+    > This seems wrong, but it's fair to attempt.
+-   Lambda refuses to use the red, naturally. There's no need to give Bern a reason to guess.
+-   _Bern_ [BLUE TRUTH]: Krauss carried the corpses off and hid them. You've acted it out so that it looks like you've kidnapped Krauss and locked him up somewhere, but he might be free. Krauss has no alibi. Krauss hid their corpses.
+    > My theory.
+-   _Bern_ [BLUE TRUTH]: The corpses were different people in the first place. They were substitute corpses that closely resembled the victims. George and the others were hiding from the beginning, and later cleared up those substitute corpses. These corpses were dead from the very beginning, so they don't count towards the number of people on the island.
+    > What the fuck? lmao
+-   Bern uses Battler's machine gun analogy again in reference to the blue truth
+
+-   Servant waiting room; Gaap appears
+-   _Gaap_: That's a nice cut. It must've been made with a single slice. Has anyone who's capable of this manifested yet? Not good. I can't think of anyone decent who might be capable of this.
+-   Genji's corpse taken away
+    > No observers here. You can claim fucking anything
+-   When a person's missing, they are suspected as culprit and victim
+-   This ambiguity is where demons reside
+-   Beatrice is trying to draw attention away from Natsuhi.
+
+    > Further enforcing the Krauss theory
+
+-   Relatives trying to enter Kinzo's study
+-   Kinzo was last "spoken to" at about 23:00 the prior night
+-   Shannon pulls out a good lie and claims Kinzo has both keys
+
+    > CLOSED ROOM YEAAAAHHHH
+
+    > NOOOOOOOOO WHY AM I ERIKA
+
+-   _Erika_: It'd be pretty neat if Kinzo was lying on the bed in there with his throat cut.
+
+    > I agree
+
+    > Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself Kill yourself
+
+    > I might be stupid, but why are they making such a big deal out of Erika not remembering an earlier book with an equal number of murders?
+
+    > I'M BEING ATTACKED
+
+    > Why does piece Battler know so much though?
+
+-   Getting the ladder from the boiler room will probably reveal Kinzo in the incinerator as per usual right?
+    > Nope
+    > So Kinzo hasn't been thrown in yet
+-   Rudolf is going to smash open the window with a hammer
+    > Kannon and Shannon are totally helpless here. Are they going to sabotage this attempt?
+-   Kinzo is told to hide under the bed or in a closet, like a proper ghost
+-   Gaap is going to help him escape at the "last moment"
+-   _Gaap_: I'll carefully watch over the corpses of the first twilight that I erased, making sure nothing happens to them.
+-   Bernkastel will start trying to expose Kinzo's absence with a closed room argument
+-   "With the door and the window, the **past and the future** to choose from, there are plenty of places to run to. Of course I won't let this be a closed room."
+    > Basically implying that Kinzo can be placed in many different scenarios
+-   Rudolf enters
+-   The bed was empty. There were marks on it that made it seem as though someone had slipped out, but there was no one in sight.
+-   The bed was cold. Rudolf feels as though Kinzo slipped out of this room a long time ago
+-   Natsuhi last "met" Kinzo at 23:00 last night.
+-   Relatives decide to search the room
+-   The shadows that can make things 'exist' are the themselves the world of us witches, the world of demons
+-   _Beatrice_: I will **not let Kinzo be killed**.
+
+-   Erika wants to confirm that Natsuhi was indeed the last person to see Kinzo
+-   Erika claims that Natsuhi is the most suspicious
+
+    > She went to bed early last night (no confirmation, but we know this)
+
+    > Ah... it's odd that Natsuhi was so certain that nobody else met Kinzo after 23:00
+
+    > We know the truth, but Erika probably sees her as either the culprit or someone covering up
+
+    > Furthermore, Natsuhi's supposed reason for being so certain contradicts the claim that Kinzo would sometimes wake up in the middle of the night
+
+-   Eva confirms that Natsuhi 'came out of this room' at around 23:00 last night
+    > Is she going to reveal the truth?
+-   _Erika_: Just when did Kinzo disappear, I wonder?
+
+    > Eva couldn't claim that Natsuhi was actually talking to Kinzo, so they don't even know if he was there at 23:00.
+
+    > So that opens up the possibility that Kinzo has disappeared sometime over the past 1.4 years or so.
+
+-   Kinzo's death was hidden to keep the embezzlement under wraps
+-   Erika denies Kinzo's existence, and Beatrice appears to challenge her
+    > Beatrice can use the blue to deny a human theory?
+-   _Beatrice_ [BLUE TRUTH]: You can't deny the possibility that Natsuhi met with Kinzo at 23:00. During the six hours or more before you pushed your way into the study, Kinzo had many chances to escape from it! Because of this, you can't state decisively that Kinzo doesn't exist.
+
+    > Very interesting inversion here. It's almost as if Erika is fighting with the red this time.
+
+    > How exactly can this be countered? There are no facts to deny this, right?
+
+    > Oh my god, facts. Red truth.
+
+-   _Beatrice_: For one such as yourself, a guest who came to this island at most a day ago, there is no truth that can possibly be known!
+    > We need some very powerful truth here. We need to show that Kinzo was not here from the point Natsuhi visited until the relatives crowded outside the door.
+-   _Erika_: I see. So that's what kind of space this is. In that case, I'll need a piece suitable for fighting a witch. I'm the detective. My role is to take on the human culprit. You are a witch. And there does exist a fitting piece to use against witches and demons.
+
+    > DLANOR MOMENT?
+
+    > YEAAAAAAAHHHHHH
+
+-   Dressed like a clergy member, perfect for confronting a witch
+-   _Dlanor_: It is a pleasure to meet YOU. Dlanor A. Knox is my NAME.
+-   The detailed materials about Beatrice are summarized in 600 pages
+    > Ok but like, what red could even be useful here?
+-   Eva can apparently prove what we need, that Kinzo **wasn't** here for that entire duration.
+-   Palace guard appears and claims that entering or exiting through the door is impossible
+    > I'm assuming this is the auto-lock.
+-   Chiester sisters appear as well. They're obviously guns
+
+# From last night at 23:00 until the present time, the study door was not opened even once.
+
+> Is there something on the auto-lock that allows us to guarantee that?
+
+> THE FUCKING RECEIPT? WHORE
+
+> THIS WAS NEVER STATED!!!!!!!!!!!!! EXCEPT BACK IN EPISODE 1!!!!!!!!!!!!!! _SOBS AND PUKES_
+
+> We can now confirm that Kinzo could not have been in the study when Natsuhi visited at 23:00 last night. If he was, then he would be there now. Therefore, Kinzo disappeared before 23:00 last night.
