@@ -679,3 +679,255 @@
 > THIS WAS NEVER STATED!!!!!!!!!!!!! EXCEPT BACK IN EPISODE 1!!!!!!!!!!!!!! _SOBS AND PUKES_
 
 > We can now confirm that Kinzo could not have been in the study when Natsuhi visited at 23:00 last night. If he was, then he would be there now. Therefore, Kinzo disappeared before 23:00 last night.
+
+# The windows were all locked
+
+-   Chiester squad lays down a blockade over the door and all windows
+
+    > i.e. people are guarding them with guns?
+
+    > is Eva Dlanor?
+
+-   Beatrice absconds with Kinzo into a warp hole
+    > Not sure what this is a metaphor for.
+-   Would it be so strange if Kinzo had some alternate method of escape?
+    > Ah, abusing the potential of a hidden passage existing
+-   "It's only natural that we won't find them"
+-   _Beatrice_ [BLUE TRUTH]: Proof is unnecessary! It's a Devil's Proof. It's impossible to find a hidden door and therefore impossible to disprove that it exists. Therefore, nobody can deny the possibility that Kinzo escaped through a hidden door.
+
+    > I don't know how this can be denied. We need another powerful red truth. OR MAYBE...
+
+    > THERE IT IS KNOX'S 3rd YEAAAhHHHHH
+
+# I will not allow a hidden door to exist in this ROOM.
+
+-   The gate is destroyed and so is the blue truth
+
+# Knox's 3rd. It is forbidden for hidden passages to exist.
+
+-   _Beatrice_ [BLUE TRITH]: After slipping out the door, it's possible that Kinzo noticed the receipt and returned it to its original place.
+
+    > Invalid. The red does not allow this
+
+    > Dlanor is going insane
+
+    > This is a very cool demonstration of how poorly Battler was fighting before. He wasn't fighting as a "mystery" genre, he was literally just using fantasy to counter fantasy. Beatrice is fighting no differently here.
+
+    > Also cool how Dlanor is invoking "God" to use these red truths. It's a funny little subversion, using faith to lay out axioms like this.
+
+-   _Dlanor_: The progression of humanity, as well as techniques and knowledge that might be obtainable in the future, are decided upon by our GOD.
+-   Beato might have been a fearsome witch, but blood flowed through her veins and she did breathe.
+-   Beato quietly brushed aside Natsuhi's hand that tried to comfort her
+
+    > Krauss?
+
+    > I can think of one way Beato can get out of this.
+
+    > Claim that Kinzo wasn't even here when Natsuhi visited at 23:00. Natsuhi talked to him over the phone.
+
+-   _Beatrice_ [BLUE TRUTH]: Natsuhi claims to have 'talked with Kinzo in the study', but she never said she spoke with him face to face. She could have called him while he was somewhere else.
+    > Exactly what I expected.
+-   He could have been at Kuwadorian
+-   Natsuhi might have been referring to the room as 'Kinzo'
+    > Wow this is foul. Is there any red to deny these?
+-   Kinzo could have climbed out of the window and Natsuhi closed it
+
+    > Is there any red that can completely destroy all of these blue truths?
+
+    > Well, if we had conclusive proof of Kinzo's death, we'd be done here.
+
+-   Erika plays detective and confirms that the Kinzo which Natsuhi refers to, is indeed, Kinzo.
+    > Interesting. Another key difference in this game is the fact that Erika is fighting on both Beatrice's plane and her own.
+-   No red here, but Natsuhi repeats Erika's claim: 'I, Ushiromiya Natsuhi did, at 23:00 last night, speak with Ushiromiya Kinzo while in the same room as him, this room'
+-   Additionally, she did not chase him out the window.
+
+# When Natsuhi refers to 'Kinzo', she means Ushiromiya Kinzo and nothing else.
+
+# Natsuhi claims to have met face to face with Kinzo in the study at 23:00
+
+-   Because Natsuhi 'the one who knew the truth', had denied them, those denials had gained the power of the red truth!
+-   The only remaining blue truth is that Kinzo is still somewhere in this room.
+    > This... is technically a Devil's proof. We need red that says something like "Kinzo is not in this room"
+
+# Kinzo is not under the bed.
+
+# Kinzo is not in the bathtub.
+
+# Kinzo is not in the closet
+
+> excluding his relationship with genji
+
+# DIE THE DEATH
+
+# SENTENCE TO DEATH
+
+# GREAT EQUALIZER IS THE DEATH
+
+# [12-9-22]
+
+-   Erika can now safely conclude that Kinzo was not in this room when Natsuhi entered. She lied about meeting Kinzo last night.
+
+-   ...or not. Battler is going to deny Erika's truth somehow? More fucked up logic that technically works?
+
+    > More importantly... why exactly is Battler trying to deny this? Does he feel pity for Natsuhi?
+
+    > No, I think it's more like he disagrees with how shameless and cruel everyone is.
+
+    > Anyway, how can he disappear from the room with all of that preestablished red? Some bullshit about inheriting Kinzo's name? "Kinzo is no longer Kinzo after removing the ring"
+
+    > But that still doesn't resolve anything...
+
+-   To begin, Kinzo is lying in bed listening to the report. He doesn't give a shit, and eventually falls asleep.
+-   Before leaving, Natsuhi inspects the room very thoroughly.
+    > Okay... what does this prove? Did Natsuhi not actually do her inspection, maybe?
+-   Most of the room would be in Natsuhi's blindspot as she did her inspection.
+    > Ah, he could have left the study while Natsuhi wasn't looking?
+
+# You cannot leave through the door without Natsuhi thinking something was odd
+
+# Natsuhi did not hear the sound of the door opening while in the room
+
+# Kinzo entering or exiting through the door will not be permitted
+
+> What options are left here? The window? That's not possible either.
+
+> Battler is trying to prove that a face-to-face conversation actually occurred in this room... I don't see how this is possible. So far, we only know that Kinzo can move about the room freely. He cannot leave through the door, and he cannot hide in the room.
+
+> I see one option. He could have slipped out with Natsuhi? But there's no way.
+
+> The window? Seriously?
+
+# This window is sealed from the inside, and Natsuhi did not help Kinzo escape
+
+> Kinzo could have jumped out without Natsuhi noticing? What?
+
+**WHAT BETTER WAY TO ENJOY A DRINK ON A TWISTED NIGHT...THAN LEAPING THROUGH THE RAINSWEPT SKIES!!!**
+
+> ok that was cool
+
+# The window was locked from the inside
+
+> Natsuhi locked it, I guess. This is so fucked LOL
+
+> Remembering Shannon's red barrier when Beatrice was assaulting her back in episode 2...
+
+-   _Dlanor_: You who have thrown away your life and jumped are a MARTYR! Well done, you have smashed our closed room BARRIER.
+
+# Knox's 8th. It is forbidden for the case to be resolved with clues that are not PRESENTED!
+
+-   _Dlanor_ [BLUE TRUTH]: Was it shown beforehand that a blind spot existed within the study for Natsuhi? If not, this theory will not be permitted.
+
+# When we entered the study, its structure was clearly described.
+
+-   There's no way a human could catch a witch. For one such as her, without love, even touching Beato was impossible.
+    > Interesting... she really is like an inverted Ange.
+-   _Battler_: It's still just the first twilight! I'll teach these newcomers that your game isn't that easy!
+-   _Battler_: Erika. I'm not giving the riddle of the golden witch to you. I'll solve it. That riddle belongs to the two of us. Right, Beato?
+
+    > Assuming the "riddle" is figuring out who Beatrice is and what she wants to show Battler?
+
+    > Ok but like how is Battler totally fine. Did he actually jump? There were observers...
+
+-   Everyone agrees that Kinzo could have done this
+
+    > Alright, I think I see what's going on here. Everyone understands what Battler was trying to do (preserve Beatrice? Prevent everyone from ruthlessly accosting Natsuhi?) and they're all collectively believing this FARCE
+
+    > Beatrice disappears, and Shannon says something(?)
+
+    > Probably just a coincidence
+
+-   _Battler_: Beato's game isn't forgiving. It's doubtful whether the classic patterns of the mystery genre even work here. Your swordsmanship isn't bad, but you ought to be a bit more flexible in your thinking.
+-   Erika is going to chew this riddle to bits
+    > Okay so I think I see how this game needs to be played now. Battler has to basically preserve Beatrice in order to figure out what she was trying to tell him? It's still not 100% clear to me, but I guess he's fighting to preserve some kind of solidarity between the family members
+-   Dlanor and Virgilia were friends in heaven?
+-   _Dlanor_: She is the original master of this WORLD. And you are the proper guest, invited by that MASTER. That is why I have come to pay my RESPECTS.
+    > Huh. She addressed Virgilia with Mrs.
+-   Virgilia puts on a magic spectacle of making tea, and Dlanor claims that a tea set existed and was used to make the tea normally. Instead of outright crushing the magic, she acknowledged the potential of interpreting it as magic.
+    > Exactly what Ange did.
+
+# Knox's 9th. It is permitted for observers to let their own conclusions and interpretations be heard.
+
+> Her interpretation does not deny the existence of magic for others. In other words, no red was used. She just stated her own interpretation.
+
+-   _Dlanor_: Magic that hides the result in darkness is EVIL. However, magic that enshrouds the process is not necessarily EVIL. My foe is evil itself, not MAGIC.
+    > Very very good line...
+-   _Battler_: The important thing is that you're being served some tea, so it's common courtesy to avoid complaining about how it was made.
+    > Dlanor is a kid who can't have nonsweet things?
+
+# _Battler_: So then... is magic... a gentle... lie?
+
+> Ohhhhhh another really good line...
+
+> Virgilia says it's more like embellishment
+
+-   _Dlanor_: When giving a child candy, you can take a crumpled up one out of your pocket, or you can use some clever sleight of hand to take the candy OUT. The impression given by each method varies GREATLY.
+    > The result of giving them candy has been made more beautiful and fun...
+-   _Dlanor_: Hunting witches is my JOB. However, I personally find witches PITIABLE. ..In the end, that doesn't change the fact that I sentence witches to death. In the end, my pity is nothing more than a useless embellishment. It makes no difference. So it would be better to not have it.
+    > Pity is magic?
+-   Battler and Virgilia disagree. Even if two results look the same, whether or not there's warmth behind the feelings of whoever gave it to you makes a big difference.
+
+    > 'In its deliberate attempt to be real, it becomes more real than the real itself.'
+
+    > I can't help but think of Discworld here. I'm not one to draw comparisons (anymore), but everything being said here reminds me of Death's famous line: 'Humans need fantasy to **be** human. To be the place where the falling angel meets the rising ape.'
+
+# [You need to believe in things that aren't true. How else can they become?](https://www.youtube.com/watch?v=xlKnkHdJdIg)
+
+> It All Makes Sense Now
+
+> I think this entire conflict starts to make more sense when we think of Beatrice as a concept akin to say, justice, duty, pity, whatever. These things aren't real. Why do we let them exist then?
+
+> Because they make life better. At least, that's my answer. They make things interesting. Now...
+
+> **How did Kinzo ever obtain that gold?**
+
+-   Dlanor came here to apologize.
+    > For what though?
+-   The fight wasn't luck of the draw.
+
+# Kinzo is dead at the starting time for all games
+
+-   Dlanor didn't use this red.
+
+# Knox's 2nd. It is forbidden for supernatural agencies to be employed as a detective technique.
+
+> Interesting. Facts that haven't been proven directly cannot be used, basically. Intuiton is bullshit, witches are bullshit.
+
+# The window was never opened after it started raining
+
+> I'm not really sure how this was proved. But sure.
+
+-   It's almost as though Bern and Lambda are conspiring to prevent Kinzo's existence from being denied.
+-   So they let Kinzo escape. But why?
+-   Dlanor thinks they have some sort of wicked goal.
+-   _Dlanor_: Furudo Erika is a very evil entity. She's lost face with her recent defeat and is burning with a desire for revenge. Even I don't know what she is planning. However, it can't be anything good.
+-   Nobody can reach the Golden Land if Beato doesn't want them to.
+
+    > So she wanted Ange to come?
+
+    > I guess that's because Ange finally understood the nature of magic.
+
+-   _Erika_: As if you had a heart that could get injured. You lowly witch-hunting murder doll.
+
+    > I kinda hate this bitch
+
+    > This isn't important, but I'm probably more Dlanor-coded now that I've actually read this much. We'll see.
+
+# First Twilight Investigation
+
+> That's right, Kinzo's disappearance isn't the real game here. Just a bonus mystery.
+
+-   Start by destroying the witch theory with respect to the letter at 24:00.
+
+# Before the family conference, Erika, George, Jessica, Maria, Nanjo, Gohda, and Kumasawa left the mansion and moved to the guesthouse.
+
+# Of those who remain, only Krauss, Natsuhi, and Genji were in the second floor corridor, while all others were in the dining hall.
+
+-   The mansion was completely locked, which means "nobody" could have knocked and placed the letter.
+
+    > Supposedly. I see one good possibility here: The latter 3 are conspiring.
+
+    > Additionally, someone could have pretended to go to the guesthouse and stayed inside the mansion.
+
+-   Erika confirms both of these possibilities immediately
+-   She also throws out some dumb bullshit to simulate a potential "knock".
+    > I don't really like any of her suggestions, but they are technically valid. Blegh.
