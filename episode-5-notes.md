@@ -931,3 +931,168 @@
 -   Erika confirms both of these possibilities immediately
 -   She also throws out some dumb bullshit to simulate a potential "knock".
     > I don't really like any of her suggestions, but they are technically valid. Blegh.
+
+# [12-10-22]
+
+# Krauss, Natsuhi, and Genji did not even touch that letter!
+
+> Interesting...
+
+-   Bern says it would be easy if Kanon, the last person to enter, dropped the letter
+
+# Among all those inside the mansion at 24:00, not a single person placed that letter in the corridor.
+
+> This does introduce the possibility that someone who was in the mansion before 24:00, but not at 24:00, placed the letter. Of course, that means that the one who placed it and the one who knocked are different.
+
+-   Someone who existed outside the mansion at 24:00 placed the letter somewhere other than the hallway. Then, it was moved by some means and ended up 'placed in the hallway'.
+-   Glued to the bottom of the serving cart maybe
+    > Let's review. The letter appeared at roughly ~24:00, and nobody in the mansion put it there. So it needed to appear there by some mechanism other than them. It's also possible that someone in the dining hall put the letter somewhere else long before 24:00
+
+# Neither Krauss, Natsuhi, nor Genji knocked
+
+# This refers to 'knocking' in every sense of the word. No pillars, casettes, nothing. None of them knocked.
+
+-   Someone other than those three made the knock, or else a sound that could be misidentified as a knock.
+
+# At 24:00, excepting Krauss, Natsuhi, and Genji in the second floor corridor and all of the people in the dining hall, no Humans existed inside the mansion
+
+# In addition to Krauss, Natsuhi, and Genji, none of those in the dining hall knocked on that door. This includes all forms of 'knocking' as before.
+
+# It was impossible for any character within the mansion to be the source of a knocking sound. This refers to even unobserved people that no one has noticed.
+
+> So it had to be someone outside.
+
+-   Someone outside the guest house could have recorded a knock and played it at exactly 24:00. But this wouldn't have worked if the letter had fallen elsewhere.
+    > Right. The knock clearly communicated the letter's arrival.
+
+# No one in the mansion placed the letter in the hallway. This includes doing so by all concepts, such as directly, indirectly, intentionally, coincidentally, and unintentionally.
+
+> This is hard to beat. However, we can maybe recycle Erika's theory and suppose that the letter was dropped out of some compartment at 24:00 along with the knocking sound.
+
+> Could someone in the dining hall 'not exist' in the mansion at 24:00?
+
+# At 24:00, only Erika, George, Jessica, Maria, Nanjo, Gohda, and Kumasawa existed outside the mansion.
+
+> That narrows things down.
+
+# The letter never existed on the ceiling of the hallway.
+
+# The letter never touched the serving cart.
+
+# It was impossible for anyone outside the mansion to influence anything inside the mansion after the family conference began.
+
+> The casette tape truth regarding the knock is still valid. That works. The problem is the letter.
+
+# None of the characters misidentified a knocking sound. In other words, it was a real knock. Not one on a casette, or a pillar, or whatever.
+
+# Something definitely hit the door. It's totally impossible that any sounds except hitting that door directly would be misinterpreted as a knock.
+
+> Fuck
+
+-   Maybe an automatic door knocker? This still doesn't explain the letter, though I think you could argue that the letter was attached to the automatic door knocker.
+
+# To knock means someone hitting a door with their hand
+
+> Fuck 2.0
+
+# Knock refers to the action of standing directly in front of a door and hitting it with a hand.
+
+-   "Useless pieces are painful even to remember"
+
+    > :eueeeeghghh:
+
+    > Let's think carefully here. The red on line 961 is probably the most important. Nobody in the mansion, not even unobserved individuals, was the source of the knock.
+
+    > This immediately narrows things down to the ones outside the mansion. We then run into the red on line 982. Nobody outside the mansion influenced things inside the mansion after the conference began. Note that this doesn't say "nobody outside the mansion knocked". That would be a lot worse.
+
+    > But how can someone outside the mansion knock on the door?
+
+    > Okay, here's a theory.
+
+    > Someone who moved to the guesthouse placed the letter in the hallway before the conference started, but out of sight. Maybe under a carpet or something. The letter was then moved later by someone inside the mansion, which shouldn't count as placing it.
+
+    > Now here's the important part. The clock in the main hall was forwarded by a few minutes. This means that when it rang out, **it was not actually 24:00**. This lets us bypass the red. Someone from the guesthouse could have have knocked at that time, then exited the mansion to keep the red intact. This doesn't count as influencing the conference, because as Dlanor herself said, the knock on its own did not provide any important information. It was simply a way of indicating the letter's arrival.
+
+    > I think this works.
+
+-   New theory from Detective Erika
+-   Battler wriggled down the rain gutter into the courtyard.
+
+    > Ok. So? Kinzo could still escape dumbass
+
+    > this is the character ever
+
+    > HOW IS SHE THIS PATHETIC
+
+-   Erika goes feral for a second, then lighting strikes, and she's normal again. Everyone is just like "alright"
+
+    > Yeah
+
+-   Erika checks everyone's alibis
+-   Battler returned to the guesthouse at **3:00 AM**. Then, the rest of them split up 30 minutes later
+
+    > Earlier notes said Battler returned at **3:05 AM**. This might be evidence to support the tampered clock idea.
+
+-   The corpses will be "impossible to find for a Human"
+
+# Anyone looking at George, Jessica, Maria, Rosa, or Genji's corpses could confirm at a glance that they are dead.
+
+-   Beatrice's goal is different now. She just wants to protect Natsuhi.
+-   Hiding the corpses throws doubt onto whether there were corpses in the first place, just barely allowing Natsuhi to avoid being a suspect.
+    > Huh?
+-   Natsuhi can claim that the suspects of the first twilight were shrimply playing dead.
+    > I mean... I guess. This seems like a terrible strategy...
+-   In the human world, perpetual check is a valid move.
+-   Remember that Natsuhi was ordered to go into a closet at 1:00, which is in just a few minutes.
+
+-   Erika is accusing Natsuhi because her alibi isn't valid. There is no proof she was in her room the whole night.
+-   Natsuhi is uncooperative and doesn't provide an alibi
+
+    > Krauss could give her one, but he's not here
+
+    > I think we can reasonably suspect a murder will happen while Natsuhi is in the closet.
+    >
+    > > (Insert joke about Eva and Natsuhi exploring each others bodies)
+
+-   She was given permission to bear the One-Winged Eagle in her heart
+    > Well, by a ghost.
+-   The door to the guest room was **unlocked**
+    > Interesting. My immediate thought is that whoever murdered Genji took his master key and unlocked it afterwards.
+-   The room was empty.
+-   A carpet was laid down in the closet.
+    > Was this always there?
+-   Natsuhi locked and chained the door
+    > I guess this is all a ploy to draw more suspicion to Natsuhi, not to give her alibis.
+-   Natsuhi unlocks the door and the chain to avoid suspicion, then enters the closet
+-   Someone needed a key to place the card in Natsuhi's room
+-   It's realistic to assume that one of the servants lent the culprit a hand
+-   How did they know that autumn is my favorite season?
+    > Because it's Krauss...
+-   ...If I asked even my husband what my favorite season is, he would probably be stumped for an answer.
+    > Oh
+-   Just once, I told it to a single person. That's right **Shannon**.
+    > OH
+-   The culprit, or one of their accomplices, has to be Shannon!
+    > Well, I do know Shannon was (most likely) the culprit in episode 1 (and subsequently 2-4 because of dumb extra knowledge)
+-   Shannon has served the family for 10 years
+-   Kinzo says that anger is the fastest sedative to cure fear and uncertainty
+-   The most fearful people always get angry the quickest
+    > Probably true
+
+# I never told anyone except Shannon that I like autumn.
+
+-   If I wasn't given this time in the closest, I wouldn't have realized this
+-   Hideyoshi enters the room.
+    > He did not know it was unlocked. In fact, he thought it was locked.
+-   He then closes and locks the door behind him, and then **seemingly** the sound of him setting the chain.
+-   _Hideyoshi_: Just in case. In this weather, it's pretty much night out there anyway.
+    > Closing the shutters?
+-   It seems safe to assume that everyone was taking a break, and it was probably unsafe to return to the guesthouse.
+    > This could be some kind of plan. Whoever gave Hideyoshi the key to this room might be the culprit (or an accomplice)
+-   Eventually, Natsuhi hears a strange, sobbing voice from Hideyoshi
+-   Natsuhi thinks to herself and deems herself the final head of the family
+-   _Hideyoshi_: Who are you? How did you get in here? Wh-What's that? W-Wait a sec!
+-   Eva arrives and tries to open the door
+-   Natsuhi hears nothing at all
+    > First idea: this was a suicide
+    > Second idea: Hideyoshi faked his own death
