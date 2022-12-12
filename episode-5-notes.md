@@ -1096,3 +1096,379 @@
 -   Natsuhi hears nothing at all
     > First idea: this was a suicide
     > Second idea: Hideyoshi faked his own death
+
+# [12-11-22]
+
+-   He was lying face down on the bed, so this wasn't a suicide. His death is certain(?)
+    > No observer. But I think it's fair to say he's truly dead...
+-   Stake in the back
+-   Hideyoshi left the parlor about 10 minutes ago to rest
+-   Eva told him to wait for her
+-   Looks like another closed room murder
+
+    > It's pretty obvious that this was a set-up to frame Natsuhi.
+
+    > She's going to be found in the closet
+
+    > Can we be certain that nobody else is in the room?
+
+    > Of course, the only one unaccounted for is Krauss.
+
+-   The chain was truly set by Hideyoshi.
+-   Hideyoshi's corpse is carried out to prevent it from being "gapped" away
+    > This is a very simple idea, but did anyone check under the bed?
+-   Erika is just barely prevented from opening the closet
+-   Natsuhi leaves the room without being discovered
+-   Nvm
+
+-   Erika assembles everyone in the parlor and locks the door
+-   Bern proclaims checkmate
+
+    > If Erika guesses Natsuhi, that's incorrect
+
+    > Does Bern actually have a solution for the letter and knock?
+
+    > I'm going to assume Bern is actually incorrect, and Battler will step in as the proper detective.
+
+    > What will happen to Erika?
+
+-   _Virgilia_: (to Beato) By the 4th game, you had sent him all your messages. In other words, Battler could realize the truth at any moment. But he's still soft in some ways. So even if the games continue like this a hundred times, he won't solve it for all eternity. He'll just search for the blue bird forever. And that's you, Beatrice.
+    > Virgilia is implying that the truth is incredibly harsh? It's something that Battler can't fathom because of his "soft" disposition.
+-   Even if this game continues hundreds more times, you will never reach the answer you seek, for all eternity.
+
+    > WHAT DOES SHE WANT
+
+    > WHY ARE GIRLS LIKE THIS
+
+-   Bern and Lambda's abuse of the game is something they both need. End Battler's softness and Beatrice's hesitation.
+-   That's why she called them here. To end the eternal torture between you two.
+-   _Virgilia_: Beatrice... how long do you intend to stay there, neither alive, nor dead?
+    > She's the cat in the box.
+-   "You must choose whether to take his hand and rise up to heaven or grab him and fall into hell."
+-   Purgatory can be a lot worse than hell, because those in purgatory still have some hope left.
+-   The key to the box that you were afraid to open... has been brought to you by those two (Bern and Lambda).
+-   Beatrice, it's time for you to die now. I hope your heart is stopped by the hand of the person you desire.
+-   Fast-forward ALL THE WAY to midnight
+
+    > Presumably because Bern is going to end the game...?
+
+-   _Bern_: No matter how many pieces we see outside of the 18, they are phantoms.
+-   _Erika_: Though it may be only for a short while, I will most certainly make my master forget about the poison that torments her.
+    > Boredom?
+-   The Court Of Illusions will now begin...
+
+-   Kinzo slipped out of the study and is hiding somewhere on Rokkenjima
+    > False, but that blue truth wasn't denied
+-   Krauss was captured and is being confined somewhere
+    > Probably false...
+-   Eva is alive
+-   Rudolf is alive
+-   Rosa was killed on the first twilight
+-   Jessica, George, and Maria all died on the first twilight
+-   Natsuhi is alive
+-   Hideyoshi was killed shortly before
+-   Kyrie is alive
+-   Nanjo is alive
+-   Genji died on the first twilight
+-   Shannon and Kanon are alive
+-   Gohda and Kumasawa are alive
+
+# **Erika claims Natsuhi is the culprit**
+
+> ![oh my gah](https://i.ytimg.com/vi/kg0yKLE3QkM/hqdefault.jpg)
+
+# Note to the reader: I'm going to start including imeowges from this point furward. I hope this makes the viewing experience more engaging.
+
+-   Erika is naturally challenged by Beatrice
+-   Natsuhi feigns calmness
+
+    ![bullied kid](assets\Umineko5to8_Kpa9ilC7zF.jpg)
+
+-   Bern claims Natsuhi is the culprit
+
+> Wow, even Bern is claiming Natsuhi as the culprit. That can't be true right? I mean, technically, Natsuhi wasn't **observed** in her room for the entire night, nor was she observed in the closet during the entire duration of Hideyoshi's murder... but still.
+
+-   Naturally, Beatrice claims the culprit isn't human. Lambda says something cool:
+
+    ![let's go lambda](assets\Umineko5to8_l0kPqv0bt8.jpg)
+
+-   If the witch wins, the truth about the game will disappear into darkness. If Erika wins, the illusion of the witch will be wiped from the board.
+-   Erika supposedly has nothing to lose
+
+    > I doubt that. I'm pretty sure Bern will just kill her
+
+    ![erika is fighting for her life](assets\Umineko5to8_nK0vLwC6LR.png)
+
+    > Case in point
+
+-   Erika first claims that because everyone was accounted for in the parlor except Natsuhi, she must have murdered Hideyoshi.
+
+    > Okay but what about Krauss...
+
+    ![bern i think u are missing something](assets\Umineko5to8_QjE6Dedj6s.jpg)
+
+-   Inside this cat box that will never be opened, false charges that everyone accepts are worth no more or less than the truth.
+
+-   Beatrice tries to prevent things from moving non-chronologically. Bern says that doesn't matter
+
+    ![objection](assets\Umineko5to8_Kz449I8374.jpg)
+
+-   Lambda sides with Beatrice and forces Erika to start with the first twilight
+-   Erika starts by claiming that Natsuhi has no alibi from 24:00 on the 4th to the morning of the next day
+
+    ![natsuhi has no alibi, she is the culprit](assets\Umineko5to8_vHWRHVVEdL.png)
+
+    > Good lird
+
+    ![we have to prove that everybody else has one](assets\Umineko5to8_0x9TEjgfx0.jpg)
+
+-   Gohda and Kumasawa claim their alibis: Gohda was alone in the guesthouse servant room while Kumasawa went to bed in the waiting room
+    > Gohda is lying, isn't he? He was talking to Nanjo in the parlor
+-   Erika and Bern claim that they can prove both of their alibis
+-   time for red v blue
+
+    ![beato's first blue](assets\Umineko5to8_sFKh8UVjxx.jpg)
+
+-   Neither Bern nor Dlanor are going to step in with the red
+-   Erika talked to Eva after dinner last night, and she was told something interesting.
+
+    > This is related to the epitaph, presumably?
+
+    > Nope, the receipt
+
+    > No way. She put a receipt in the door to the waiting room?
+
+-   Kumasawa's alibi has been established
+
+# After Kumasawa returned to the guesthouse, she never went to the second floor until morning.
+
+> I'm assuming Gohda is going to be outed as a liar, but his alibi will be established thanks to Nanjo.
+
+-   Sort of. He did actually return to the receipted servant room, then was in the lounge with Erika and Nanjo until 3. There's his alibi.
+
+# After Gohda returned to the guesthouse, he never went up the second floor until morning.
+
+-   Erika lays out the guesthouse situation at 24:00
+-   The gold was found, and a meeting was called with Battler and the relatives. Erika, the 3 cousins, Nanjo, Gohda, and Kumasawa stayed in the guesthouse.
+
+# At 24:00 in the guesthouse, George, Jessica, and Maria were alive and in the second floor cousin room. Nanjo, Gohda, and Kumasawa were on the first floor.
+
+# No murder before 24:00 took place.
+
+# At 24:00, Natsuhi, Krauss, and Genji were in a corridor on the 2nd floor of the mansion. All the remaining people were at the family conference in the dining hall. Of course, no murder had occurred yet. Genji was also alive.
+
+-   Beato is a piece this time, so she doesn't actually know the truth. She's basically in Battler's position
+-   Nanjo is clear from 1:00 to 3:00.
+-   What about from 12:00 to 1:00?
+
+# From 1:00 to 3:00, Erika, Nanjo, and Gohda spent their time in the lounge on the first floor of the guesthouse.
+
+# Nanjo was with Erika from 24:00 to 3:00.
+
+-   Furthermore, Nanjo's door was sealed from the moment he went to bed till Battler's scream the next morning
+-   Erika can prove that Battler returned to the room, immediately went to bed, and that nothing else happened in that room until he woke up
+
+    > The crime occurred between 24:00 and 3:00 then?
+
+    > I'm not sure how to prove that. Unless, of course, Erika put a seal in the door after Battler went to bed.
+
+    > Assuming this, she can listen to everything that happens in the room since hers is adjacent
+
+-   Erika shrimply put her ear against the wall the entire night.
+    > love this freak
+
+# Ushiromiya Battler returned to the cousin room at 3:00 AM and fell asleep. After that, until the discovery of the crime, absolutely nothing out of the ordinary happened in that room!
+
+> Anyone who wasn't in the guesthouse before 3:00 AM now has a free alibi.
+
+-   Everyone in the guesthouse had an alibi.
+
+    > So it needs to be someone from the mansion.
+
+    > In other words, someone who was in the mansion at 24:00, left the mansion at some point between 24:00 and 3:00, then committed the crime.
+
+-   Tricky part is that Erika was in the lounge until 3:00. How can someone reach the second floor without her noticing?
+
+# It is impossible to reach the second floor of the guesthouse without anyone in the lounge noticing it. Though of course, this only refers to reaching the second floor from inside the building.
+
+-   Erika fucking sealed all the windows from the outside. In the rain. On both floors.
+
+    ![you are an actual fucking freak. i love you so much](assets\Umineko5to8_yT8WcfRmwk.jpg)
+
+# It was impossible to read the second floor of the guesthouse without passing through the lounge, and impossible to reach it at all without Erika, who was in the lounge, knowing about it!
+
+> So the crime must have happened between 24:00 and 1:00...
+
+# Of all the people in the dining hall, not one of them left the dining hall until 1:00 AM.
+
+> Free alibis for them
+
+-   So the only three left are Krauss, Natsuhi, and Genji.
+
+# When Genji finished transferring the call, he immediately returned to the waiting room.
+
+> I feel like Bern is kind of cheating with the red here. I will ignore this because I like looking at her face
+
+![bern going :D](assets\Umineko5to8_t2rTu8nQtq.jpg)
+
+-   Eva sealed Genji's door at 1:00 AM as well
+    > The tape.com
+
+# At 1:00 AM, Eva sealed Genji's waiting room, and that seal with broken by Kanon and Kumasawa in the morning when the crime was discovered.
+
+> So Genji was also murdered between 24:00 and 1:00
+
+# During the short break at 1:00 AM, the first two to leave the dining hall were Rosa and Eva. Until Eva returned, everyone in the dining hall remained there. After seeing Rosa off, Eva went to the waiting room and sealed it. She did not enter the room at all during this time.
+
+# Genji never left the mansion after 24:00
+
+> We're down to two suspects. Krauss and Natsuhi.
+
+-   Bern asks Natsuhi to confess to Krauss being the culprit
+-   The witches are distorting the truth to fit Erika's narrative
+
+    ![virgilia saying stuff about lambda being the game master](assets\Umineko5to8_GBKnUKVACj.jpg)
+
+-   The witches have actually been conspiring with Erika. That being said, her truth has been acknowledged as a red truth.
+
+-   Battler says the real truth isn't something that's determined when everyone accepts it. It's something you find after thoroughly investigating both possibilities
+
+    ![battler pointing out how weak beato's strat currently is](assets\Umineko5to8_scqcmFcSzo.jpg)
+
+-   Beatrice has to find a different truth and show Lambda, the commander of this game
+
+    > I'm not sure how that's possible. How do you get through the currently established red?
+
+-   Show that her truth is **more correct** than Erika's.
+    > Show that Krauss is the culprit? That's like... the only possibility
+-   As long as I don't believe Natsuhi is the culprit, it won't be the truth.
+
+    > Battler is straight up willing to let the witch exist
+
+    > What
+
+-   Battler is just straight up denying the red???
+-   You should never assume something is the truth until you actually check it.
+
+    ![kind of a ridiculous example but i see the point](assets\Umineko5to8_q2n4moLXZA.png)
+
+    > Battler what the fuck do you mean there's a lack of proof
+
+    > EVERYONE HAS ALIBIS EXCEPT FOR HER AND NATSUHI
+
+    > unless the red can't be trusted. wait
+
+    ![this is a cool line](assets\Umineko5to8_Ozf9oS25V8.jpg)
+
+-   Virgilia is going to give Battler a single red:
+
+# Ushiromiya Natsuhi is not the culprit!
+
+-   Bern and Lambda are trying to force Beatrice into saying Krauss is the culprit
+
+-   Natsuhi refuses to accuse Krauss
+-   Bern goes villain mode
+
+    ![Bern u are so cruel.......](assets\Umineko5to8_iN8rMiruqo.jpg)
+
+    > What about the red?
+
+    > What then? Do we just take Krauss as the culprit?
+
+-   What happens to Natsuhi if they move on to the next game with her as the culprit?
+-   _Beatrice_: I know the strength of a man who believed even though everyone said he was wrong, and I know the suffering he went through when he was forced to abandon that belief! Truth can only be found in the gap between those who doubt and those who believe!
+
+    > Beato refuses to give up
+
+    ![RAW](assets\Umineko5to8_WVZvTBvU5W.png)
+
+# Ushiromiya Krauss is not the culprit. And he was killed long ago, shortly after you heard his voice over the phone, get it?
+
+> HUH???
+
+> WHAT. HOW? THERE ARE NO OTHER OPTIONS
+
+-   Natsuhi is the last person who can protect the honor of the Ushiromiya family.
+-   ...But there's nothing left that can be done.
+-   Lambda begins reading out the verdict:
+-   During the hour before 1:00 AM, Krauss, George, Jessica, Maria, Rosa, and Genji were killed one after another!
+-   Beatrice has to prove an alibi for Natsuhi to prevent her eminent denial
+
+    ![I REFUSE TO DENY NATSUHI'S INNOCENCE](assets\Umineko5to8_3d05Sn6Lca.jpg)
+
+-   _Natsuhi_: You cannot disprove the existence of my honor with evidence and alibis. You can't. The Ushiromiya family crest engraved into my heart is immortal!!!
+
+    > This is so fucking crazy. The red doesn't even line up
+
+-   Erika constructed a more believable truth, and so it would swallow up every other truth.
+-   **EVEN IF IT HAPPENED TO BE DIFFERENT FROM THE REAL TRUTH**
+
+    ![jesus fucking christ](assets\Umineko5to8_9DidHqQkdV.jpg)
+
+-   Bern denies Natsuhi's own reality
+
+    > good FUCKING god
+
+    ![JESUS FUCKING CHRIST](assets\Umineko5to8_D2eEhsIOvb.jpg)
+
+    > OH MY FUCKING GOD
+
+-   The true Kinzo never once trusted Natsuhi during his entire life.
+
+# Pitiful woman. You will now face the truth... that you never gained Ushiromiya Kinzo's trust as long as he lived.
+
+# ..................................
+
+-   Right now, no humans exist on this island except for those in this parlor.
+-   And... with one exception, it has been shown that none of them have committed murder.
+
+![You're the culprit, Natsuhi-san.](assets\Umineko5to8_tiBIH7rXhQ.jpg)
+
+> I can't take notes during this, sorry.
+
+-   Beatrice is thrown to the goats, and her screams are those of a human, not a witch
+
+> # DLANOR????
+
+> USE THE RED!!! USE THE RED!!! USE THE RED VIRGILIA GAVE BATTLER!!!!!!!!!!!
+
+-   _Dlanor_: There is nothing that is not healed with TIME. And there is no truth that cannot be reached if you spend enough time SEARCHING. However, all trials have a limited time in which the truth must be DECIDED. Therefore, a truth that cannot be reached within that limited time cannot become TRUTH.
+
+-   Is it even possible to put together a truth where she's not the culprit?
+-   What about that single piece of red?
+
+# Real truth doesn't exist anywhere...
+
+![it doesn't, huh](assets\Umineko5to8_bZ0u3cIp4U.jpg)
+
+-   Battler starts by doubting Erika's seals
+
+    > It's tape though isn't it...
+
+    > Yeah...
+
+# Both Erika and Eva's seals were perfect
+
+-   _Beatrice_: Liar. I'll never trust your promises again.
+-   _Battler_: Huh? When did I ever make a promise to you, and what was the lie?
+
+    > The sin...
+
+    ![Hell might not be so bad](assets\Umineko5to8_tXOv44V6BT.png)
+
+-   Battler begins throwing out absurd blue truths, none of which make a single dent in the red
+    > PLEASE USE THE SINGLE RED YOU WERE GIVEN
+-   Battler is prepared to use that single red to deny Erika's truth, even though he's still going to be banished into oblivion
+-   Keep Beato alive, and let someone else solve this
+
+# Pain
+
+-   _Erika_: You can't find any testimony or evidence that can be used to elevate that statement to the level of red truth, right?
+-   _Natsuhi_: Does anyone need evidence to say they're in love?
+    > crazy good line
+
+![I only trust the red](assets\Umineko5to8_BL8iV6Tq7x.jpg)
+
+> Agony. Suffering. Pain. Anguish. Despair
+
+> i can't do this i'm sorry reader they're claiming natsuhi slept with kinzo
