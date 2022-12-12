@@ -1182,7 +1182,7 @@
 -   Erika is naturally challenged by Beatrice
 -   Natsuhi feigns calmness
 
-    ![bullied kid](assets\Umineko5to8_Kpa9ilC7zF.jpg)
+    ![bullied kid](assets/Umineko5to8_Kpa9ilC7zF.jpg)
 
 -   Bern claims Natsuhi is the culprit
 
@@ -1190,14 +1190,14 @@
 
 -   Naturally, Beatrice claims the culprit isn't human. Lambda says something cool:
 
-    ![let's go lambda](assets\Umineko5to8_l0kPqv0bt8.jpg)
+    ![let's go lambda](assets/Umineko5to8_l0kPqv0bt8.jpg)
 
 -   If the witch wins, the truth about the game will disappear into darkness. If Erika wins, the illusion of the witch will be wiped from the board.
 -   Erika supposedly has nothing to lose
 
     > I doubt that. I'm pretty sure Bern will just kill her
 
-    ![erika is fighting for her life](assets\Umineko5to8_nK0vLwC6LR.png)
+    ![erika is fighting for her life](assets/Umineko5to8_nK0vLwC6LR.png)
 
     > Case in point
 
@@ -1205,29 +1205,29 @@
 
     > Okay but what about Krauss...
 
-    ![bern i think u are missing something](assets\Umineko5to8_QjE6Dedj6s.jpg)
+    ![bern i think u are missing something](assets/Umineko5to8_QjE6Dedj6s.jpg)
 
 -   Inside this cat box that will never be opened, false charges that everyone accepts are worth no more or less than the truth.
 
 -   Beatrice tries to prevent things from moving non-chronologically. Bern says that doesn't matter
 
-    ![objection](assets\Umineko5to8_Kz449I8374.jpg)
+    ![objection](assets/Umineko5to8_Kz449I8374.jpg)
 
 -   Lambda sides with Beatrice and forces Erika to start with the first twilight
 -   Erika starts by claiming that Natsuhi has no alibi from 24:00 on the 4th to the morning of the next day
 
-    ![natsuhi has no alibi, she is the culprit](assets\Umineko5to8_vHWRHVVEdL.png)
+    ![natsuhi has no alibi, she is the culprit](assets/Umineko5to8_vHWRHVVEdL.png)
 
     > Good lird
 
-    ![we have to prove that everybody else has one](assets\Umineko5to8_0x9TEjgfx0.jpg)
+    ![we have to prove that everybody else has one](assets/Umineko5to8_0x9TEjgfx0.jpg)
 
 -   Gohda and Kumasawa claim their alibis: Gohda was alone in the guesthouse servant room while Kumasawa went to bed in the waiting room
     > Gohda is lying, isn't he? He was talking to Nanjo in the parlor
 -   Erika and Bern claim that they can prove both of their alibis
 -   time for red v blue
 
-    ![beato's first blue](assets\Umineko5to8_sFKh8UVjxx.jpg)
+    ![beato's first blue](assets/Umineko5to8_sFKh8UVjxx.jpg)
 
 -   Neither Bern nor Dlanor are going to step in with the red
 -   Erika talked to Eva after dinner last night, and she was told something interesting.
@@ -1293,7 +1293,7 @@
 
 -   Erika fucking sealed all the windows from the outside. In the rain. On both floors.
 
-    ![you are an actual fucking freak. i love you so much](assets\Umineko5to8_yT8WcfRmwk.jpg)
+    ![you are an actual fucking freak. i love you so much](assets/Umineko5to8_yT8WcfRmwk.jpg)
 
 # It was impossible to read the second floor of the guesthouse without passing through the lounge, and impossible to reach it at all without Erika, who was in the lounge, knowing about it!
 
@@ -1309,7 +1309,7 @@
 
 > I feel like Bern is kind of cheating with the red here. I will ignore this because I like looking at her face
 
-![bern going :D](assets\Umineko5to8_t2rTu8nQtq.jpg)
+![bern going :D](assets/Umineko5to8_t2rTu8nQtq.jpg)
 
 -   Eva sealed Genji's door at 1:00 AM as well
     > The tape.com
@@ -1327,13 +1327,13 @@
 -   Bern asks Natsuhi to confess to Krauss being the culprit
 -   The witches are distorting the truth to fit Erika's narrative
 
-    ![virgilia saying stuff about lambda being the game master](assets\Umineko5to8_GBKnUKVACj.jpg)
+    ![virgilia saying stuff about lambda being the game master](assets/Umineko5to8_GBKnUKVACj.jpg)
 
 -   The witches have actually been conspiring with Erika. That being said, her truth has been acknowledged as a red truth.
 
 -   Battler says the real truth isn't something that's determined when everyone accepts it. It's something you find after thoroughly investigating both possibilities
 
-    ![battler pointing out how weak beato's strat currently is](assets\Umineko5to8_scqcmFcSzo.jpg)
+    ![battler pointing out how weak beato's strat currently is](assets/Umineko5to8_scqcmFcSzo.jpg)
 
 -   Beatrice has to find a different truth and show Lambda, the commander of this game
 
@@ -1350,7 +1350,7 @@
 -   Battler is just straight up denying the red???
 -   You should never assume something is the truth until you actually check it.
 
-    ![kind of a ridiculous example but i see the point](assets\Umineko5to8_q2n4moLXZA.png)
+    ![kind of a ridiculous example but i see the point](assets/Umineko5to8_q2n4moLXZA.png)
 
     > Battler what the fuck do you mean there's a lack of proof
 
@@ -1358,7 +1358,7 @@
 
     > unless the red can't be trusted. wait
 
-    ![this is a cool line](assets\Umineko5to8_Ozf9oS25V8.jpg)
+    ![this is a cool line](assets/Umineko5to8_Ozf9oS25V8.jpg)
 
 -   Virgilia is going to give Battler a single red:
 
@@ -1369,7 +1369,7 @@
 -   Natsuhi refuses to accuse Krauss
 -   Bern goes villain mode
 
-    ![Bern u are so cruel.......](assets\Umineko5to8_iN8rMiruqo.jpg)
+    ![Bern u are so cruel.......](assets/Umineko5to8_iN8rMiruqo.jpg)
 
     > What about the red?
 
@@ -1380,7 +1380,7 @@
 
     > Beato refuses to give up
 
-    ![RAW](assets\Umineko5to8_WVZvTBvU5W.png)
+    ![RAW](assets/Umineko5to8_WVZvTBvU5W.png)
 
 # Ushiromiya Krauss is not the culprit. And he was killed long ago, shortly after you heard his voice over the phone, get it?
 
@@ -1394,7 +1394,7 @@
 -   During the hour before 1:00 AM, Krauss, George, Jessica, Maria, Rosa, and Genji were killed one after another!
 -   Beatrice has to prove an alibi for Natsuhi to prevent her eminent denial
 
-    ![I REFUSE TO DENY NATSUHI'S INNOCENCE](assets\Umineko5to8_3d05Sn6Lca.jpg)
+    ![I REFUSE TO DENY NATSUHI'S INNOCENCE](assets/Umineko5to8_3d05Sn6Lca.jpg)
 
 -   _Natsuhi_: You cannot disprove the existence of my honor with evidence and alibis. You can't. The Ushiromiya family crest engraved into my heart is immortal!!!
 
@@ -1403,13 +1403,13 @@
 -   Erika constructed a more believable truth, and so it would swallow up every other truth.
 -   **EVEN IF IT HAPPENED TO BE DIFFERENT FROM THE REAL TRUTH**
 
-    ![jesus fucking christ](assets\Umineko5to8_9DidHqQkdV.jpg)
+    ![jesus fucking christ](assets/Umineko5to8_9DidHqQkdV.jpg)
 
 -   Bern denies Natsuhi's own reality
 
     > good FUCKING god
 
-    ![JESUS FUCKING CHRIST](assets\Umineko5to8_D2eEhsIOvb.jpg)
+    ![JESUS FUCKING CHRIST](assets/Umineko5to8_D2eEhsIOvb.jpg)
 
     > OH MY FUCKING GOD
 
@@ -1422,7 +1422,7 @@
 -   Right now, no humans exist on this island except for those in this parlor.
 -   And... with one exception, it has been shown that none of them have committed murder.
 
-![You're the culprit, Natsuhi-san.](assets\Umineko5to8_tiBIH7rXhQ.jpg)
+![You're the culprit, Natsuhi-san.](assets/Umineko5to8_tiBIH7rXhQ.jpg)
 
 > I can't take notes during this, sorry.
 
@@ -1439,7 +1439,7 @@
 
 # Real truth doesn't exist anywhere...
 
-![it doesn't, huh](assets\Umineko5to8_bZ0u3cIp4U.jpg)
+![it doesn't, huh](assets/Umineko5to8_bZ0u3cIp4U.jpg)
 
 -   Battler starts by doubting Erika's seals
 
@@ -1454,7 +1454,7 @@
 
     > The sin...
 
-    ![Hell might not be so bad](assets\Umineko5to8_tXOv44V6BT.png)
+    ![Hell might not be so bad](assets/Umineko5to8_tXOv44V6BT.png)
 
 -   Battler begins throwing out absurd blue truths, none of which make a single dent in the red
     > PLEASE USE THE SINGLE RED YOU WERE GIVEN
@@ -1467,7 +1467,7 @@
 -   _Natsuhi_: Does anyone need evidence to say they're in love?
     > crazy good line
 
-![I only trust the red](assets\Umineko5to8_BL8iV6Tq7x.jpg)
+![I only trust the red](assets/Umineko5to8_BL8iV6Tq7x.jpg)
 
 > Agony. Suffering. Pain. Anguish. Despair
 
