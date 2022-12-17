@@ -96,7 +96,7 @@
 
     > Well, actually, in this case... it's explicitly solvable.
 
-    ![aw.](assets\Umineko5to8_ewoOfB2w4N.png)
+    ![aw.](assets/Umineko5to8_ewoOfB2w4N.png)
 
 -   Basically, this is a fair fight.
 
