@@ -297,4 +297,114 @@
 -   The cousins start moving to the guesthouse and pass through the entrance hall
 -   Shannon is with them
 -   Battler was terrified of the witch 6 years ago
--   Beato is an incarnation of a butterly
+-   Beato is an incarnation of a butterfly
+
+# [12-18-22]
+
+> Note: I have a migraine so these notes might suck
+
+-   Why did Beatrice bully Battler so much despite being born for his sake?
+    > God I wish that were me
+-   The new Beatrice has no issue with spiderwebs or scorpion charms
+-   Mario 64 time
+
+    ![oh, it's the golden land](assets/Umineko5to8_KREFAXnA1A.png)
+
+    > Sounds like the golden land to me. As long as she asks for nothing, this world will ask nothing of her.
+
+    > It's a comfortable darkness, but Beato doesn't want to stay inside it forever.
+
+-   Beatrice is "born". Another one. But they're different somehow.
+
+    > Her profile says she's a "mysterious witch who existed even before the rules" and that she is the "final version of the witch sealed away by Kinzo".
+
+    > It also says that she's the one who gave Shannon the butterfly brooch. Why is that mentioned?
+
+-   The new Beatrice was born later. Does that mean the mission to live for Battler's sake was born later?
+
+    ![until you were born, i was complete](assets/Umineko5to8_cDm5o4WAWk.png)
+
+    > This older Beatrice was complete until this newer one was born. What exactly... does that mean?
+
+    > It's hard to answer that until we have a clear understanding of _who_ or _what_ Beatrice is. Seems like she was "revived" by Battler in a sense, but what is meant by Kinzo sealing her away?
+
+-   This Beatrice is more similar to the one we know. She's interested in reviving and teaching Kinzo a lesson.
+-   They also seem to be a few years in the past. Before the portrait was put up.
+    > WHAT ARE YOUUUUUUU
+
+---
+
+-   Shannon is a klutz
+    > This isn't even an important note
+-   _Shannon_: I didn't see her directly, but some very strange things did happen.
+    > Ah, confirming that the events in episode 2 were not quite as they seemed.
+-   Anti magic toxin isn't as dangerous to those whose existences are already weak
+    > Those who still believe will probably still continue believing regardless?
+-   Witches don't need to use magic
+-   Witches cannot enter a human's field of vision
+-   Why is she not hurt when Battler sees her?
+-   If their existences are acknowledged, this isn't an issue.
+    > See: Ange and Battler
+-   The older Beatrice wanders around at night, striving to regain her power and reduce the anti magic power of humans.
+
+    > There's probably **some** parallel between what she's doing and Shannon making her usual night rounds.
+
+    ![no way...](assets/Umineko5to8_hDNUbGG1gF.png)
+
+    > Wait hang on. There's a Kanon/Shannon parallel here. The game literally just said that Shannon was a klutz who would leave things unlocked.
+
+    > It also introduced the idea that people are differentiated by their personalities. You're not the same person you were (six) years ago for example.
+
+    > Don't tell me that Kanon and Shannon are actually the same person...
+
+-   _Beatrice (older)_: Right now, there is no one in this corridor. And yet, the lock has been undone, and the window has opened.
+
+    > The window was already open before?
+
+    > Dumb and incorrect idea: Battler was already dead at the end of episode 4
+
+-   Servants are starting to believe in Beatrice, bit by bit.
+-   Ange and Featherine mention how the witch's existence is a product of the environment. This could just be resolved by saying that someone forgot to lock up or that it was a prank, but the rumors of the witch took form instead
+
+    > Considering what Shannon said earlier, I think that is literally what happened
+
+    > However, because we don't know precisely what happened, the existence of the witch cannot be denied.
+
+    ![so true ange](assets/Umineko5to8_dCsWGxi4jZ.png)
+
+-   The witch's prank becomes fact by those who believe in it
+-   Belief causes magic to become truth. Sakutaro is the quintessential example.
+    > Mass produced stuff animal. Rosa Ushiromiya kill yourself challenge (FAILED)
+-   _Ange_: Beatrice is just a general term for any inexplicable occurrences that take place in the mansion after dark. Beatrice isn't the name of a person, it's a phenomenon.
+
+    > What about the Beatrice from 30 years ago then?
+
+-   The eerie magic circles were being drawn before as well
+    > These weren't actually observed
+-   _Erika_: There's probably some person by that name, or else multiple persons of a fixed or unfixed number who do things and attribute it to that name.
+
+-   Why is she arguing with a literal 9 year old
+
+    > I love Erika so much
+
+    ![autism vs adhd](assets/Umineko5to8_mJ0eefUcWV.jpg)
+
+    > Autism vs ADHD
+
+-   where am i
+-   They're transported to the Golden Land (which, I think, is just a witch's headspace) and Erika asks MARIA to demonstrate Beatrice's magic
+-   Also I forgot but Maria is the founder of Mariage Sorciere
+
+    > Do I actually have to take notes on this fucking "fight"
+
+    > Fine
+
+# This is a story of something that really happened!
+
+# There were no tricks. It was just an ordinary table and an ordinary cup.
+
+-   She closed her eyes yeah yeah yeah...
+
+    ![its'a me erika furudo imma gonna ruin this 9 year olds whimsical fun](assets/Umineko5to8_G7FRGNEfOu.jpg)
+
+# Your so-called candy magic is nothing more than a sleight of hand! Just a sleight of hand that the fake witch calling her Beatrice or whoever claimed was magic!
