@@ -408,3 +408,178 @@
     ![its'a me erika furudo imma gonna ruin this 9 year olds whimsical fun](assets/Umineko5to8_G7FRGNEfOu.jpg)
 
 # Your so-called candy magic is nothing more than a sleight of hand! Just a sleight of hand that the fake witch calling her Beatrice or whoever claimed was magic!
+
+> SHE IS LITERALLY BULLYING AN AUTISTIC TODDLER
+
+-   An 'Illusion of the Witch' occurs when someone tries to force the acknowledgement of magic by claiming that a thing would be impossible without it. If someone can show that it would be possible without magic, the illusion is defeated and the witch must retreat.
+
+    ![you're a little too polite george](assets/Umineko5to8_nPEYXMZnLf.png)
+
+-   Shannon asks Battler not to push any further "for her sake"
+-   Maria says Erika doesn't believe in witches, magic, miracles, or happiness
+-   Erika called Kumasawa to the lounge?
+
+# [12-22-22]
+
+> whats up everybody its AA im playing umineko episode 6 i was busy fucking with arch linux for 2 days lets do this shit
+
+> I wonder if there's a particular reason Erika and Dlanor are presented as children
+
+-   _George_: Well, my parents brought me up to treat women with care
+
+    > why does this sound so awful
+
+    > HE USED TO BE AN INCEL?
+
+    > ok in his defense he was a literal middle schooler
+
+    ![uh huh?](assets/Umineko5to8_PXF5wVvtdx.jpg)
+
+    > Both of you. Both of you...
+
+    > I know this is referring to both Shannon and Battler, but I'm choosing to believe it doubles as a subtle nod to Shannon having two names.
+
+    ![she's just like me for real](assets/Umineko5to8_ReNeTmGnvF.jpg)
+
+    > **SHE'S JUST LIKE ME!!!!!!!!!!!!!!!**
+
+-   George didn't want to admit that pedestalizing girls was Incorrect and continued to believe that Battler and Jessica were inferior
+    > Come on man...
+-   _Ange_: No idiot would want to be friends with an unmoving, unspeaking telephone pole. However, unmoving and unspeaking is exactly what you'd want from a telephone pole.
+    > Don't try too hard
+-   George was envious of Battler because he and Shannon got along well
+-   It's worth noting what Shannon said about Rudolf always keeping up with Battler as well
+-   George is going to announce their marriage tomorrow
+-   He's willing to disinherit himself
+-   _Erika_: Are there any mystery novels that accept love as proof? No, there aren't.
+
+    > Yeah yeah, if their engagement is impeded, it can be a motive
+
+    ![oh you pathetic creature](assets/Umineko5to8_ZDKSGUmTbV.png)
+
+-   Erika once again wonders what truth Battler reached to change his mind about Beato
+-   Shannon returns to the servant room and meets Genji and Kanon
+-   _Kanon_: That was a pretty long break.
+
+    > Envy? Are you even real? Do you EXIST?
+
+    ![not going to lose?](assets/Umineko5to8_sOaQIbyxwj.png)
+
+    > This weird competition thing again. I wonder what this implies. Like why can only one relationship work out?
+
+-   Shannon and Kanon pull out the left and right wings of a gold butterfly
+    > Okay they have to be one person right?
+-   In order to become human (Detroit) and receive the miracle that allows us to love, we must rely on a miracle of magic once again
+
+    > The brooch? They split it in half?
+
+    ![UH HUH?](assets/Umineko5to8_UGAFpQ9MIf.png)
+
+-   The brooch was the first time that Beatrice interacted with a human and gave them her power
+    > This contradicts episode 2 doesn't it?
+-   She was able to materialize in front of Shannon in particular
+-   Kumasawa says the breaking of the mirror on the shrine was a prelude to Beatrice's resurrection
+    > Shannon moment
+-   Erika notes that it's strange how the mirror works on both evil spirits from the East and witches from the West
+-   Why can't Beatrice stand spiderwebs?
+
+    > That's a good question. I mean, there's the whole butterfly thing...
+
+    > Also scorpions. Where did that come from?
+
+-   Erika points out that the stories treat Beatrice and the evil spirits of Akujikishima the same
+-   Scorpions represent a charm against evil in western sorcery
+-   Erika claims that the two legends mixed together after Kinzo had the portrait made
+-   She further claims that the legend of the witch is just the legend of Akujikishima rebranded
+    > Seems to be the case
+-   Beato is unaffected by spiderwebs
+-   **Beatrice** is burned by them.
+
+    > Beatrice's properties are determined by the person who creates her
+
+    > Huh, Battler learned the truth, then when he made a Beatrice, she ended up being a normal human.
+
+-   Witch who can use magic, but has no body vs. witch with a body but cannot use magic
+
+    ![this is kinda gay](assets/Umineko5to8_bjfWRVahiK.png)
+
+    > This is a little real and homosexual
+
+-   They attempt to fuse, but nothing happens.
+
+    > oooooooh it's not their time yet
+
+    > gay ass game
+
+---
+
+> Back in the fucking horrifying room
+
+-   The finger is now attached, but the teeth marks are still there
+-   ...This individual is now collared.
+-   The chain keeping the door shut was now keeping them in place
+
+    ![red truth?](assets/Umineko5to8_AXwP23bm7P.png)
+
+    > So they can't exit unless the chain is set. This is truly a perfect closed room
+
+    > One interpretation: this is another instance of why someone would believe in the witch, because a witch could just escape
+
+# [12-23-22]
+
+-   _Jessica_: I love fighting all-out like this!
+    > Call back to the Ronove fight in episode 4?
+-   Because Kanon rigidly believed that he was furniture, he thought his dreams were pointless
+-   The ability to grow is a privilege only given to humans
+-   Kanon asks a very sad question...
+
+    ![sadge.,com](assets/Umineko5to8_58JsVAmfqF.png)
+
+    > First of all, meowch. Pain. Agony. Suffering
+
+    > Second, I like how this juxtaposes both Ange and Erika's perceptions of love. Ange demonstrates the redemptive and healing nature of love, Erika outright denies the concept of loving (in relation to herself) because it's not red, and Kanon fails to understand how he can be loved.
+
+    > This is cool. That there are no prerequisites to being loved/deserving love is a very powerful message
+
+-   Frustrated that he can do nothing but simply receive the affection
+-   As expected, Jessica doesn't really have a reason. In fact, her supposed reason could be misconstrued to imply that any nearby boy would have been fine
+
+    > First of all, I'm choosing to believe a girl would have been fine too. Second, why does it matter? Like, seriously. Just have fun with it...
+
+    ![YEAAAAHHHH](assets/Umineko5to8_TiL9JSwzqw.png)
+
+    > You don't need someone else to acknowledge why you're lovable, you just are.
+
+    > Really interesting commentary on the transformative power of love here. Epic
+
+-   Kanon repeats that furniture (who aren't of this world) need a miracle to love
+-   Ange is failing to understand why magic is necessary for them to love
+    > Well, I can't help but think back to the Discworld thing again. Magic is all about belief, right? Embellishment, believing in something that isn't necessarily "true" or "real". Humans need to do that in order to **be** human. And love is probably the best example. You have to believe that you can love and deserve to be loved. There's nothing... _factual_ there. It's just believing in something so it can become.
+-   Furthermore, this is all the result of the brooch
+-   According to the furniture, Shannon won't even have the right to marry without another miracle
+    > But... why? Their marriage is guaranteed at this point
+-   There's some kind of barrier that can't be overcome without magic
+    > What barrier though?
+-   Same goes for Kanon. What miracle is needed at this point?
+
+    ![yeah, that is the question](assets/Umineko5to8_3NLVvet14m.jpg)
+
+-   Just what exactly is the brooch?
+
+---
+
+-   Big sister Beatrice says it's a "crystallization of magic"
+-   It only works for those who already believe in magic, like Shannon
+-   _Beatrice (baby)_: It's ironic. No matter what kind of magic we give out, everything depends on whether the human we give it to can accept it.
+
+    > You don't say? It's almost as if you have to believe in things for them to become real.
+
+    ![the exact some conclusion i've reached](assets/Umineko5to8_evbM8LSlf3.png)
+
+    > Very true, and a conclusion I've reached as well. Parappa was right
+
+-   "Those who make others believe are witches"
+
+    ![oh my god this is awesome](assets/Umineko5to8_7IBhxPyq73.jpg)
+
+    > So this seems to reinforce my interpretation of the golden truth. It's a personal truth. Something you choose to believe. It can be overridden by a red... but only if such a red exists.
