@@ -583,3 +583,147 @@
     ![oh my god this is awesome](assets/Umineko5to8_7IBhxPyq73.jpg)
 
     > So this seems to reinforce my interpretation of the golden truth. It's a personal truth. Something you choose to believe. It can be overridden by a red... but only if such a red exists.
+
+-   Ange once again questions what the brooch is
+    > I feel like it's very simple. The brooch is just a little bit of encouragement. "Hey, this is possible". Just like Beatrice's game.
+-   She also questions whether something as "insignicant" as belief and encouragement would be enough to change fate
+    > It is! You really don't need much to completely change trajectories
+-   The vague, ritualistic power of the brooch is much more different now. It's stronger, like a **whole different interpretation of magic**.
+    > You only need a tiny bit of magic to get some momentum. Then, things just become "real".
+-   _Kanon_: You are human, so you do not believe in witches or magic.
+-   He also says that he was created by magic, so his existence is proof of it.
+
+    > Odd. But it kind of reasserts the idea that Kanon isn't "real".
+
+    > In other words... he and Shannon might be one person?
+
+-   A single brooch can only grant one person's wish. Only one of us furniture can be joined by this single brooch.
+
+    > So just make another one. It's possible, you just have to believe.
+
+    > Unless you're the same person...
+
+---
+
+![euuueeeueueeegh](assets/Umineko5to8_G2aRmlEAIC.jpg)
+
+> this is so sad
+
+-   Do we remember any notable cookie incidents?
+
+    > Well, there was that one part where Shannon ate some on the beach with "Beatrice". And when the cousins ate some on the beach as well in episode... 1? 2? Something like that
+
+    > It's like Sakutaro isn't it? Battler truly believes that Beatrice is dead, so he can't bring her back.
+
+-   Battler's reasons for defeating Beato isn't to destroy an enemy out of hatred, it's more like he wants to give a sincere answer to her questions
+-   A piece is like a tool. When used skillfully, they can be quite useful. But if you use them incorrectly, they can hurt you as well
+    > Like telling a story with characters, right? Something like that...
+-   Battler merely set a piece onto the board. Beatrice is the one who actually created the piece.
+
+    > In that case, why is she devoted to Battler?
+
+    > Well, clearly the answer has something to do with love.
+
+    ![just like on the boat...](assets/Umineko5to8_K2lPjeYROl.jpg)
+
+    > She's more of a human. Specifically a girl who loves Battler.
+
+    ![WHAT DO YOU MEAN YOU DON'T GET IT](assets/Umineko5to8_K2lPjeYROl.jpg)
+
+-   Ange is confused as to why a piece was made for this. If you love someone, shouldn't you just act on your own behalf? Even if the piece was successful, that piece would be loved. Not you.
+
+    > Hm... is that what Shannon and Kanon are?
+
+    ![god.](assets/Umineko5to8_sU3u6b8HFj.png)
+
+    > i am going to sob
+
+    > THIS MUSIC.......
+
+    ![AAAAAAUUUGGGHHHH](assets/Umineko5to8_m19WtYkFNl.png)
+
+    > curls up on the floor and starts sobbing uncontrollably and vomiting a little from how hard im sobbing
+
+-   Beatrice was waiting for Battler to remember before. Now... it's the exact opposite.
+-   _Beatrice_: Why not consider her my daughter? One that closely resembles me.
+
+    > Hm... wait... this isn't unlike the Beatrice that existed on the island 19 years ago...
+
+    > Or rather. It's more like she's implying that other Beatrice **is** the daughter of the one that Kinzo was desperate to revive.
+
+-   "You can torture her if you want. Or maybe even guide her down a better path."
+    > The Kinzo parallels are so fucking painful
+
+---
+
+-   George, Jessica, Kanon, and Shannon are transported to... what looks like a room in Kuwadorian?
+-   _Shannon_: Something strange is about to happen. That strange thing will probably test us.
+-   Furfur and Zepar appear
+    > the bitches from the wedding...
+-   So these are the manifestations of the brooch. Not unlike Sakutaro and his vessel
+-   _Furfur_: If you don't gain the miracle of magic, disaster will most certainly befall you!
+    > Okay, but like, I don't think your blessing is needed for things to work out
+-   "Kanon will leave the island for eternity"
+
+    > If Shannon wins, Kanon disappears. Odd.
+
+    ![more evidence for the kanon = shannon theory?](assets/Umineko5to8_VT3n96HZ2o.jpg)
+
+    > Why is this **unavoidable**?
+
+    > And what happens if they win? What happens to Shannon?
+
+-   This trial also applies to Beato. Her wish that her affection for Battler will be acknowleged can be granted
+    > I don't feel like taking notes for this
+
+---
+
+-   Erika's room is once again, on the second floor of the guesthouse
+-   Notably, it's no longer adjacent to the cousin's room. She can't hear anything.
+-   Erika is preparing more tape seals
+-   But the tape isn't sticky enough...
+-   Erika and Dlanor have nothing to do now
+-   _Dlanor_: Why do you hate magic?
+-   Dlanor claims that Erika doesn't derive any pleasure from destroying illusions
+    > I feel like that's obvious. Erika seems to just tear down magic because she herself is somehow incapable of believing
+-   Erika just starts spouting non-sequitors, confusing Dlanor
+
+    > ???
+
+    ![she's just like, listing off reasons love dies](assets/Umineko5to8_ZuhwXVOiFr.jpg)
+
+-   _Erika_: Because of love, you end up 'seeing' things that don't even exist
+-   As I am now, I no longer need to worry about being tormented by non-red words.
+
+    > I think the fact I relate to this on a very personal level is... bad.
+
+    > It's a sad position to be in. She's not even wrong. With love, you really do see things that aren't there. It's agonizing, like you're constantly fighting reality and your better judgment, and to be completely honest, adopting this mindset where you **deny** love because of the excruciating, unfathomable, reality-defying, torturous pain it causes? It makes sense. I'm not coping. I'm not coping. I'm not coping. I'm not coping. I'm not coping. I'm not coping. I'm not coping
+
+    > Who is Erika's ex? What is her damage???
+
+    > I know her damage. I see you. I need to kill mysel
+
+-   When blue truths collide, the decision is almost always based on which side has more evidence. This is particularly true for humans.
+-   _Dlanor_: Then I frankly declare that, despite a lack of proof, I still love Lady Erika even NOW.
+-   _Erika_: That's not a red. Even if it was, that's a stalemate.
+-   Erika proceeds to checkmate Dlanor effortlessly
+
+    ![this is the worst shit i've ever read](assets/Umineko5to8_hEoNpWKC34.jpg)
+
+-   Dlanor points out that humans cannot use the red
+
+    > In other words... they have to believe. How was her opponent supposed to show his truth?
+
+    ![cope.com](assets/Umineko5to8_IZjpNXoD2o.png)
+
+-   It's almost 24:00
+
+---
+
+-   Eva is flipping out about George's engagement
+-   Ayumi is another girl picked out by Eva and Hideyoshi
+-   George claims that Eva is just doing things for her own personal gain
+
+    ![whoa](assets/Umineko5to8_PGuJwpOn2L.png)
+
+    > ok i cant do this anymore
