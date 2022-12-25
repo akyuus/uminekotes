@@ -433,6 +433,8 @@
 
     > ok in his defense he was a literal middle schooler
 
+    > WAIT NO HE WAS 18 GEORGE **NOOOOOO**
+
     ![uh huh?](assets/Umineko5to8_PXF5wVvtdx.jpg)
 
     > Both of you. Both of you...
@@ -727,3 +729,170 @@
     ![whoa](assets/Umineko5to8_PGuJwpOn2L.png)
 
     > ok i cant do this anymore
+
+# [12-24-22]
+
+> Time to kill myself again
+
+-   George had piano lessons on Tuesdays, cram school on Wednesdays, supplemental lessons on Thursdays...
+
+    > guy wasn't allowed to have a childhood
+
+    > So what's Eva(trice) trying to do here? Prove that George can't do anything on his own? That he's not strong enough to go through with a decision like this? That he's dependent on her?
+
+    > Not only that, but she compares their suffering. Eva didn't have it easy, but she uses her own experiences to trivialize George's desires
+
+    > I <3 Generational Trauma
+
+    ![ugh](assets/Umineko5to8_Q7bU2APX3Z.jpg)
+
+-   _Evatrice_: A first step? Don't make me laugh. You still haven't even been born yet!
+
+    > Rejecting your kid's autonomy has to be one of the most vile things a parent can do
+
+    > I suppose this is what the trials represented. Obviously. Are we going to see Jessica talk to her parents now?
+
+-   _George_: Everything I owe you for what you've done, I've paid back now with pain.
+-   _Fight Sequence_
+
+    ![puke](assets/Umineko5to8_1Toeu6Al4A.jpg)
+
+    > No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way? No way?
+
+-   _Gaap_: Impressive. Even considering that it was before her ascension, I can't believe you managed to defeat Evatrice.
+    > This implies that she was going to solve the epitaph.
+-   _Gaap_: But of course. I wasn't here. You summoned me just now.
+    > Wait... did he actually kill her?
+-   George asks Gaap to put her body in the vip room on the second floor
+    > Ok no, he didn't actually kill her. It's all within the demons' love game
+-   'So that the love of the pair will stand true, offer up the life of one person by your own hands'
+    > Who will Beato need to kill? I can't think of anyone...
+
+---
+
+-   ~00:05 AM
+-   The family conference is ongoing. Everyone is taking a short break, and Kyrie moves to the second floor corridor
+-   Suddenly, Jessica is there
+
+    > Wait, why is she going to fight Kyrie of all people...?
+
+    > Oh, it's just a roulette.
+
+-   Would it really be okay to sell her soul to demons for the sake of love?
+-   _Jessica_: There's the two of us and another pair of lovers, ...and we have to fight each other
+
+    ![TRIANGLE YOU SAY](assets/Umineko5to8_XxwAX48IPJ.png)
+
+    > A love **triangle**. Y'know. Almost as if there are only three (four, including Beato) people in this game. Almost as if Kanon and Shannon are the same pers
+
+    > Now that I think about it, Kyrie is probably the most thematically fitting person for Jessica to fight. After all, Kyrie is a victim of a situation just like this (the situation with Asumu)
+
+    > Of course, that situation... was a love triangle. It would probably make sense for this to be a triangle as well, right? Parallels? Parallels?
+
+-   _Kyrie_ (referring to giving up on your lover): I can tell you one thing for certain. Doing that will be even more painful. You'll be forced to crawl through hell. For the rest of your life.
+    > ...This is probably talking about Kinzo as well, isn't it?
+-   Ange found Kyrie's "book of thoughts" and read it after her death
+-   _Ange_: It was practically a book of curses.
+    > She wasn't a fan of Asumu.
+-   Rudolf was a manipulative piece of shit
+-   Kyrie stood out as a shrewd business partner
+
+    ![in the opposite way?](assets/Umineko5to8_6qVkhqjv3y.png)
+
+    > So... she used her intelligence to blend into the crowd? How does that help her at all?
+
+    > Oh, no. She means Asumu pretended to be extremely stupid.
+
+-   Bit by bit, Rudolf started to need a woman who could stay quiet and soothe him
+    > booooooooo
+-   Asumu would pretend to know nothing, because she knew that's what Rudolf wanted most (someone to balance out Kyrie)
+-   And so, Rudolf ended up marrying her. She stole him away by sleeping with him
+-   They both got pregnant, and Asumu used that to secure his marriage
+-   Kyrie, on the other hand, saw it as a liability and didn't tell Rudolf about it
+-   When did she realize she was pregnant?
+
+    ![after this, i guess](assets/Umineko5to8_jyrpI6wjhr.jpg)
+
+    > There's a big theme of babies from ~19 years ago dying. There's also a big theme of wanting to be acknowledged.
+
+    1. Natsuhi killing that baby 19 years ago
+    2. Kyrie's stillborn
+    3. The Beatrice from 19 years ago dying
+    4. Beato wanting Battler to acknowledge her
+    5. Mammon wanting Ange to acknowledge her
+    6. Maria and Beatrice promising to acknowledge each other in the Golden Land
+
+    > Just to list off a few that I can remember.
+
+-   _Ange_: Asumu-san gave birth to Onii-chan
+
+    > That was proven false with the red in episode 4, wasn't it?
+
+    > Ah... wait. That makes Shannon even more suspicious! Think about it. How could Beatrice even know that Battler wasn't Asumu's kid? Kyrie didn't even seem to know that.
+
+    > However... Shannon mentioned knowing about Rudolf and how he always kept up with Battler even after he left the family. This isn't evidence per se, but I think this is still an important clue. Shannon is the only one foreshadowed to potentially know the truth about Battler's birth.
+
+    ![KINO](assets/Umineko5to8_noVit2Js7X.png)
+
+    > with dead angle playing in the background this is Beyond Kino
+
+    > ...Did Battler really inherit his fear of vehicles from her?
+
+-   Love needs to be "harvested", and it's not something you should procrastinate on
+-   _Kyrie_: My hell ended after 18 years. That person is mine. I won't let him out of my sight. And I'm grateful to my master...
+    > ...Who? Who is her master...
+-   _Kyrie_: My 'certain willpower' in not giving up on that man no matter what... was answered with a 'miracle'
+
+    > Really like the idea that miracles don't exist on their own, they're just the end result of belief
+
+    > Because, y'know. Belief brings about certainty. And certainty brings about miracles. Or something. Shut up
+
+    ![you might not hesitate at murder if rudolf wished it, huh](assets/Umineko5to8_qu2cGcyaiN.png)
+
+-   Asumu died shortly after Kyrie resolved to kill her. So her fate was sealed...
+    > The vase from the beginning of chapter 3...
+-   The miracle is that Kyrie didn't need to do it.
+
+    > Like how the cat appeared and took the blame for the vase...
+
+    ![more kanon = shannon evidence](assets/Umineko5to8_fvzTghMlR4.png)
+
+    > More Kanon = Shannon implications...
+
+-   Leviathan suddenly appears and pierces Jessica
+
+    > She appeared after both Jessica and Kyrie acknowledged this as a 'nightmare'
+
+-   _Leviathan_: She's immortal, thanks to a contract with one of the great demons!
+
+    > I'm too sleepy to interpret this
+
+    > Wait no, I'm stupid. This is Zepar's barrier.
+
+    > Interesting "unstoppable force vs immovable object" thing going on here. Well, those are the same aren't they?
+
+-   Leviathan is the only one who can unlock the room(?)
+    > ...Can the stakes be used as lockpicks? I doubt it.
+-   More funny envy calculations from episode 3
+    > These are so funny
+-   _Kyrie_: You're lacking in both love and jealousy.
+-   Kyrie says that the relatives will eventually realize she hasn't returned, then Jessica's magic will vanish once observed.
+-   _Jessica_: It seems you were too proud after all, Aunt Kyrie.
+
+    ![odd explanation](assets/Umineko5to8_mC1cKDLvoE.png)
+
+---
+
+-   Rosa in the parlor thinking about how to navigate the family conference in the direction she wants
+-   She needs ~100 million yen by March to help support 'that man's' business
+    > Maria's father
+-   Kanon has to kill her now
+-   Kanon somehow knew that Rosa co-signed a loan with Maria's father
+    > Krauss only knew about the loan. Not who she signed it with
+-   Rosa viewed it as a trial of love (it's not)
+    > Erika was right
+-   _Rosa_: I've only waited as long as the first half of Kyrie's 18 years. If I gave up after just this, she would laugh at me.
+
+    > Great logic Rosa. You must continue suffering simply because someone else suffered longer than you
+
+    ![love grown stale](assets/Umineko5to8_KcnLEbeyjv.jpg)
