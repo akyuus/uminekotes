@@ -896,3 +896,238 @@
     > Great logic Rosa. You must continue suffering simply because someone else suffered longer than you
 
     ![love grown stale](assets/Umineko5to8_KcnLEbeyjv.jpg)
+
+# [12-25-22]
+
+> happy holidays to the the certainly gay readers. i know what you are. there's no way you're not. if you aren't we can work on that
+
+-   Kanon quickly and painlessly kills Rosa
+-   MARIA JUMPSCARE
+-   Shannon has to kill Maria now
+    > Funny how that worked out
+-   Shannon uses her non-targeting barrier to crush Maria and Sakutaro
+    > IT'S JUST LIKE YUGIOH
+-   _Maria_: This might be just perfect for that wannabe detective trying to deny Beato's magic.
+
+---
+
+-   Now it's Beatrice's turn. And it looks like her target is Natsuhi.
+-   Krauss told Natsuhi to go to bed
+
+    > Oh, so the man on the phone was Krauss? I think I mentioned this possibility in the episode 5 notes
+
+    ![the spirit mirror](assets/Umineko5to8_KkarNWcM3B.png)
+
+-   _Natsuhi_: Though I understand logically that staying here is the best way I can help, I still feel wretched for doing it.
+
+    > This is another repeating theme. Understanding something logically yet still feeling awful for it.
+
+    > ...I wonder if that's how Erika feels deep down. I don't think any human can have a totally clear conscious when making an emotionally unsatisfying decision like this. Erika is still a human after all.
+
+-   There was a chance that Battler was the baby that Natsuhi pushed off a cliff 19 years ago.
+
+    > What? How? He's still Rudolf's kid... how in the world would Rudolf's baby end up with Kinzo
+
+    > I mean, Battler did try to use this as a blue in episode 5. But that was just demonstrative... it was another possible truth to deny the certainty of Erika's
+
+-   Peering into the mirror knocked Beato over
+-   Beato loves Battler and wants him to acknowledge her
+    > little too STRAIGHT for me not going to lie/fib/deceive/gaslight/gatekeep/girlboss
+-   _Beato_: I was born for Battler's sake!
+-   A closed room is one of the concepts that allows a witch to be a witch. Just unlocking the door strengthened the anti-magic toxin a little.
+
+# The power of the living to live is fundamentally stronger than the power of magic.
+
+![ah, right. this is the first twilight isn't it](assets/Umineko5to8_oSct247hdk.png)
+
+> I was thinking about this. These 5 deaths correspond to the first twilight, right? George killed Eva, Jessica killed Kyrie, Kanon killed Rosa, and Shannon killed Maria. Now, Beatrice (with Battler's help) killed Natsuhi.
+
+![she's just like me for real](assets/Umineko5to8_OPJvesEV6c.png)
+
+> Haha. I do that
+
+![anti-erika squad](assets/Umineko5to8_suadPqxJzv.jpg)
+
+> What they're basically saying is that the truth cannot be reached unless you consider various different perspectives; the red is "truthful" in the strictest sense, but the normal text just requires some nuance
+
+-   Ever since Beatrice first appeared, there have been many scenes centered around love
+-   In the end, Battler had regained some memory, and his impression of Beato had gone a complete change
+    > Hence... the new Beato.
+-   Ange would have normally left by now, but she was certain that Hachijo genuinely knew the truth
+-   Hachijo, and anyone who knows the truth, are Endless Witches
+
+    > Hold on. Whoever solves the epitaph is given the title of Golden Witch. Does that mean that solving the epitaph is equivalent to knowing the truth?
+
+    > ...How? I've already solved it, and it doesn't seem to say anything about Beatrice at all. It's not even _related_ to Beatrice.
+
+    > Back in the episode 5 notes, we established that solving the epitaph _proves_ something to Beatrice. She has an answer to a question. What question could the epitaph answer possibly be in response to?
+
+-   Bern and Erika want to play without the detective proclamation to completely "flip the score" and undo the loss from the last game
+-   Battler just sees this as a convenient excuse if they lose
+-   _Bern_: This bet is balanced. If the human side wins, the Illusion of the Witch cannot be recovered. If Erika loses, that detective trash will be sent into the depths of oblivion along with the worst possible Fragment.
+    > ...Poor Erika? What the fuck
+-   It's all or nothing, basically
+
+    > Bern wants to end this game once and for all. Because winning with a normal human means absolute victory...
+
+    > holy FUCK poor Erika
+
+-   George and Jessica knocking at Erika's door at ~1:10 AM
+-   They want to know if Battler and Maria had come to her room
+-   Servant room and dining hall of the mansion didn't pick up
+-   Erika tells them to stay in the cousin room and for the servants to not leave the building
+-   No crime has occurred in the guesthouse.
+-   The entrance hall lock was undone this time
+-   Gohda was the first one to discover the crime (in the parlor room)
+
+    ![breakdown of the parlor murder](assets/Umineko5to8_u9trQSgFQ0.png)
+
+-   They broke into the room through the window and found Rosa and Maria's corpses
+-   The entrance was unlocked because they went out through it to check the parlor from the outside
+-   It was locked before that
+
+    > Eva is the odd one out here. Rosa, Maria, Natsuhi, Kyrie, and... who was Battler's victim? They were all killed in the mansion (presumably). Eva was moved to the VIP room though.
+
+    > Good question. Also, who used the hat rack to block the room in episode 1? I can't quite remember, but I want to believe that it's [insert single entity name for Kanon/Shannon]
+
+-   Battler is found dead in a (first floor) guestroom
+-   Another closed room no way really
+-   The goal of the game is to explain, without magic, the strange crimes that are claimed to be caused with magic. If that couldn't be done, it wouldn't be a game.
+-   The witch side is therefore responsible for creating a crime that could be reproduced with tricks and not magic
+-   "Magic can only do what you can accomplish by your own hands"
+
+    > It's an embellishment, as Virgilia put it.
+
+    ![adornment, as Ange says here](assets/Umineko5to8_pqzHrrrCWK.jpg)
+
+-   Hideyoshi's group went to the guesthouse, while Krauss and Rudolf's group was in the hall
+-   Servant room contained a clear folder containing a sketch of the mansion's interior
+-   Without the detective proclamation, Erika's photographic memory doesn't count as foolproof evidence
+    > She has to fight in the same way the old Battler fought
+-   The master keys had nothing to do with the trick. The closed rooms were all made without relying on the use of locks
+    > Note that the rooms themselves were still locked
+-   The doors were locked AND chained
+-   Erika is indebted to Bern?
+-   The door to the parlor was barred with a hat stand
+-   The question now is, why choose a room without a chain lock?
+
+    > Worth noting that Eva wasn't killed in the VIP room, she was killed outside.
+
+    > Also, we should think about the "order" of these closed rooms. Beatrice's chain of rooms required a specific traversal. Is that the case here?
+
+    > Well... not really. There's nothing preventing them from entering any specific one. Plus, the master keys don't help them enter.
+
+-   There were no corpses that could have been confirmed dead with certainty by physical means
+-   Cannot deny the possibility that one or more of the corpses might be a faked death
+
+    ![Hey look at that, a reference to the first twilight of episode 3](assets\Umineko5to8_otasyascOc.jpg)
+
+-   An illusion of a closed room, or an illusion of a crime
+    > i.e. the room isn't actually closed, or nobody was actually killed
+-   There are all sorts of other technicalities as well. Manipulating the chain lock, secret doors, killing at a distance, chances of suicide, or whether they are definitive "closed rooms" in the first place
+
+    ![there go those technicalities](assets/Umineko5to8_pKEpIC4IHz.jpg)
+
+-   _Lambda_: I can't repeat that in red, because that would be too rude to Battler. If you do love me, you must see my words as red truth already, right...?
+
+    > aw.
+
+    ![AW.](assets/Umineko5to8_PDHajYs5oR.png)
+
+    > AWW.
+
+    > they're so adorable.
+
+-   If these closed rooms are perfect, then it seems as if these are all illusions of crimes. Did everyone get pissed at Erika and set up fake murders?
+-   ...Nope. They're perfect murders too.
+    > Neither of these were guaranteed were red... so something clearly has to be incorrect.
+
+---
+
+# The rooms with the six people in them are all closed rooms.
+
+# Closed rooms cannot be constructed from the outside.
+
+# All forms of interference that pass between the inside and outside of the room are prevented.
+
+-   This excludes the kinds of interference that you'd expect from a normal room, like voices, knocks, and the extension line
+
+# At the time of the deconstruction of the closed rooms, none existed within the rooms except the victims
+
+> Natsuhi, Eva, Kyrie, Rosa, Maria, Battler
+
+> So nobody was hiding in any of the rooms.
+
+-   'No murder was committed after the deconstruction of the closed rooms'... is unverified.
+    > I mean, more murders will occur after this. Battler can't really verify that claim.
+-   Excepting the victims, those who entered the closed rooms were Krauss, Rudolf, Hideyoshi, and Gohda
+-   This is based on spoken testimony. There is no proof that others did not enter
+
+# Acknowledged. Krauss, Rudolf, Hideyoshi, and Gohda were the only ones who entered the rooms.
+
+# Krauss, Rudolf, Hideyoshi, and Gohda were not involved in the murders of Natsuhi, Eva, Kyrie, Rosa, Maria, and Battler.
+
+> Wow. That is a very, VERY generous red.
+
+> But... that means it was impossible for anyone else as well. Closed rooms can only be constructed from the inside. It has been confirmed that nobody except the victims existed inside the rooms. The only people who entered were those 4, and they were confirmed innocent. That means none of the victims... are actually dead.
+
+> Of course... my comments aren't red.
+
+# The victims did not die by any method other than homicide.
+
+> This doesn't prove that they're actually dead. If there are no victims whatsoever, then you can say they didn't die by any method other than homicide. That's equivalent to saying "Someone killed nobody"
+
+-   Genji said that the mansion was locked after the kids left for the guesthouse
+-   Battler and Maria were in the mansion though
+
+    > Plus, George and Jessica entered, if we interpret the events of the demon game somewhat generously
+
+    > So a servant was an accomplice (or a culprit). Kanon/Shannon blah blah
+
+    > Though, I do wonder why Battler and Maria were even in the mansion.
+
+    > Remember. They were playing cards in the room as well.
+
+-   There's a chime in the servant room that goes off when the front door opens
+    > Ah, well that changes things.
+-   ...But there was nobody in the servant room
+    > Oh.
+-   Gohda was the only person on shift in the mansion
+
+    ![the truth about battler's birth?](assets/Umineko5to8_sbI69eA6RH.jpg)
+
+    > This shit has been on the backburner since **episode 1**
+
+    > I don't feel like devoting any brain cells thinking about it again. Let's just continue
+
+-   Erika has Krauss and the servants go to the cousin room
+-   _Erika_: This crime happened during a short break in the family conference. In that small timespan, six people were killed. It was premeditated, and committed by someone who knew the layout of the mansion well.
+-   At the time of the crime, the mansion was locked from the inside, and only those involved with the family conference existed there
+-   Gohda probably didn't kill anyone, but it's possible he welcomed the murderer into the mansion
+-   The victims are familiar with the servants, and there were no signs of a fight in any of the crime scenes. So the servants could have easily caught them by surprise
+-   There must be more than one culprit
+-   Also, it had to be someone who wouldn't rouse Rosa's suspicion until the last second (according to Rudolf)
+-   The only ones with something to gain from setting the chain locks, are the servants
+-   Erika suggests the possibility of the servants using a special tool to set the chains from the outside, even though the red makes this impossible
+    > So she wants them to suspect the servants.
+
+---
+
+-   Battler says that the witch side doesn't have a huge advantege
+-   Battler also notes that their (his and Beato's) roles have been flipped
+
+    ![only you remembered, and i forgor](assets/Umineko5to8_KznWqUuKkF.png)
+
+-   "Telling you would be easy. But I don't want to tell you. I just want to believe in a miracle for a bit myself."
+    > god.
+-   If Beato could remember a certain something without being told, that would prove that Beato had truly revived.
+
+    > ...Does this work the other way as well? Did Beato want Battler to remember the truth without being told, so that he would revive?
+
+    > ...This is probably what Kinzo was doing as well.
+
+    ![i'm too sleepy to figure this out](assets/Umineko5to8_K3Mfp3B3xY.png)
+
+    > \*Thinking about when Battler promised Shannon he'd take her away on a white horse or whatever the fuck\*
+
+-
