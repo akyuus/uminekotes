@@ -1020,7 +1020,7 @@
 -   There were no corpses that could have been confirmed dead with certainty by physical means
 -   Cannot deny the possibility that one or more of the corpses might be a faked death
 
-    ![Hey look at that, a reference to the first twilight of episode 3](assets\Umineko5to8_otasyascOc.jpg)
+    ![Hey look at that, a reference to the first twilight of episode 3](assets/Umineko5to8_otasyascOc.jpg)
 
 -   An illusion of a closed room, or an illusion of a crime
     > i.e. the room isn't actually closed, or nobody was actually killed
@@ -1130,4 +1130,107 @@
 
     > \*Thinking about when Battler promised Shannon he'd take her away on a white horse or whatever the fuck\*
 
--
+# [12-27-22]
+
+-   In all cases, the victims themselves constructed the closed rooms
+-   The closed rooms were preserved
+-   Erika says without the detective's authority, she can't be sure the corpses were dead
+-   Without the proclamation, she can't be on the offense
+
+    ![0 or 100](assets/Umineko5to8_IA6gz9Kn5f.png)
+
+-   Nothing Erika does can compare to the red
+-   She's only 99% certain of their deaths
+-   Bern usually supplies her with that additional 1%
+    > Miracles and small percentages appearing once again
+-   Dlanor's red longsword also cannot be utilized without the detective's authority
+
+    ![i feel so fucking bad for her](assets/Umineko5to8_ZKpLR3fssd.jpg)
+
+    > I feel so fucking bad for her
+
+-   The game is already over. This is just a finale, not really a 6th game
+-   Bern is unsatisfied because she wanted the board to be torn apart, and Beato's true, pathetic form exposed
+
+    ![jesus bern](assets/Umineko5to8_AX5OPozjwZ.jpg)
+
+-   Bern and Lambda claim that Erika has basically no chance of winning, since she wasn't able to win with the detective's authority
+-   _Bern_: If you manage to win in this even worse situation, that would be a miracle worthy of me.
+
+    ![JESUS BERN](assets/Umineko5to8_AjpzKOkaLB.jpg)
+
+    > I have so many things to say but frankly I just want to cry
+
+    > This question has been on my mind for a while, but why **is** Erika so subservient to Bern?
+
+    > I _want_ to say it's because she rejects love, and subsequently her own humanity (as futile as that is). Bern's goal is to trample all over the concept of love in its sincerest form, and that naturally aligns with Erika's damage.
+
+    > I worded that poorly... but I hope the idea got across
+
+    > ...poor erika. Reading this genuinely makes my eyes water, because like... **[redacted]**
+
+    > Let's not get into that here.
+
+-   _Battler_: My role isn't to carry out serial murders. It's to use that process to show you closed rooms that are impossible without magic
+
+    > Oh? Does that mean solving the epitaph indicates a belief in magic?
+
+    > Well... that would line up with Evatrice's ascension. She solved the epitaph, then became a witch. She became the exact person that could make others believe
+
+-   Battler wants to settle things with Erika after their draw last game
+
+    ![battler is a good guy](assets/Umineko5to8_EDYugpdHEA.png)
+
+-   Battler quickly realizes that Bern made Erika avoid the proclamation, after noticing that Dlanor couldn't fight
+-   _Battler_: This is between me and Erika. We're gonna fight with all we've got. That way, we'll be able to accept it whether we win or lose.
+    > What an awesome mentality
+-   Battler cannot kick Bern out of the game, because she'll take Erika with her, cancelling the game
+
+    ![no observers = illusion](assets/Umineko5to8_aF0QO6VieB.jpg)
+
+-   He still asserts that the truth only needs to pass between him and Beato, and Bern then threatens to leave and throw Erika into the worst possible fragment
+    > i am going to sob she doesn't deserve this
+-   Lambda reins in her gay wife and says Battler and Erika's desire to fight should be respected
+
+    ![hehe](assets/Umineko5to8_HTjrsjqGh6.jpg)
+
+-   Erika is asked to make the proclamation, but she can't do that without Bern's permission. She's a piece after all
+-   Dlanor needs permission to unsheath the red key, and the proclamation is just one form of that
+-   Dlanor can use the sword when given a 'truth'. For example, Bern said that Erika's seals are equivalent in value to the red truth. So Dlanor can draw the red key for truths pertaining to them
+-   _Battler_: Erika was proud to call herself a detective, wasn't she?
+
+    ![empathy battler](assets/Umineko5to8_BynjFm5stV.png)
+
+-   "In accordance with the rules, I must fight my rival ruthlessly. But I don't need to hate Erika as a person. I won't **misunderstand** Beato's game."
+-   Battler lets Erika use three rooms' worth of packing tape seals
+    > Three ROOMS' worth is a fuckton of tape. She needs to cover all the doors and windows
+-   He also acknowledges that the seals have the same effect as the red truth
+    > So now Dlanor can use her sword with respect to them
+-   Battler rewrites the tale: the packing tape that Erika received was sticky, but there was only enough to use for three rooms
+    > ...logic error window?
+-   Human side wants to apply this retroactively, but that gives them a HUGE advantage
+
+    > They can just tape the relevant rooms
+
+    ![aw.](assets/Umineko5to8_gqCHXep322.png)
+
+    > smile
+
+-   _Battler_: In the game, let's suspect each other over everything as enemies. But as fellow players, let's trust each other. That's how this game is meant to be played.
+
+> NOOOOOOO I'VE BEEN FOOLED AGAIN
+
+> erika's trick
+
+![many people say this to me](assets/Umineko5to8_yx6WJM5EV7.jpg)
+
+> So like. I feel like this is another important theme to touch on
+
+> Is Battler a fool for being trustworthy? I don't want to assume that he's playing 5D chess and somehow didn't give himself a disadvantage here, and just assume he's a nice person. Trust is good.
+
+![ah, but oyu see,, it can](assets/Umineko5to8_TAqrheeHSH.jpg)
+
+> IT CAN EXIST!!! COLLECTIVE DELUSION!!! MORE THAN ONE PERSON CAN BELIEVE!!!
+
+-   It can exist in the Golden Land
+-   That place doesn't exist in this world though
