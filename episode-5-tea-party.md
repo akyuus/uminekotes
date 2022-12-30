@@ -140,7 +140,7 @@
 
     > An irrefutable fact? But that's what the red is...
 
-    > Well, wait. It's been established that truth is overridden by newer truths. But that doesn't really apply here, right? No, it's exactly what happened to Ange on the boat. He's realized that his personal truth cannot be overridden **at all** unless he wants it to. Furthermore, he's learned to acknowledge everyone else's? I don't really know. Ange is my blueprint here
+    > Well, wait. It's been established that truth is overridden by newer truths. But that doesn't really apply here, right? No, it's exactly what happened to Ange on the boat. He's realized that his personal truth cannot be overridden **at all** unless there's a red to counter it. Furthermore, he's learned to acknowledge everyone else's? I don't really know. Ange is my blueprint here
 
 -   Battler is the new game master
 -   Bern is going to play again

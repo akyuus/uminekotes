@@ -1234,3 +1234,568 @@
 
 -   It can exist in the Golden Land
 -   That place doesn't exist in this world though
+
+# [12-28-22]
+
+-   George implies that the Golden Land is... in death?
+    > I mean, that makes sense given the epitaph
+-   The next trial is a battle on equal footing, someone needs to be killed
+-   There's no real way to go about this without it being totally luck-based
+    > I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY I HATE GAME THEORY
+-   Erika, Rudolf, and Krauss decide to split people up into two rooms on the second floor of the guesthouse
+-   They're suspicious of Gohda, Genji, and Kanon
+-   Six in the cousin room (including those 3) (Krauss, Rudolf, Jessica, Genji, Kanon, Gohda)
+-   Six in the other (Hideyoshi, George, Shannon, Kumasawa, Nanjo, Erika)
+    > I imagine Jessica wanted to be moved because George and Shannon were in the other room
+
+---
+
+-   _Battler_: Magic is not something that is given to lazy or powerless humans. On the contrary, people who can hide their great efforts are the ones we call witches.
+-   Erika split them into two rooms to somehow allow her to investigate the closed rooms more closely
+
+# [12-29-22]
+
+-   The dialogue here makes it seem as if George didn't kill Eva
+    > Obviously we can't trust that
+-   Erika says she'll visit the cousin room, but it's pretty obvious she just wants to revisit the crime scenes
+-   She's clever. She's making sure Hideyoshi keeps everyone inside this room indefinitely
+
+    > This isn't guaranteed, but Hideyoshi _was_ confirmed to have nothing to do with the first 6 murders. Ergo, he's probably not an accomplice. So this is like sealing the room...
+
+    ![it begins](assets/Umineko5to8_LunjY5FK2K.png)
+
+    > huge grin on my face
+
+-   Erika asks Battler to confirm the locations of all characters present.
+
+    > This is a good move. If Battler refuses, Erika can claim that someone sneaked out and committed the rest of the murders
+
+    > For a crime to be impossible, he should reveal their locations...
+
+# The six first twilight victims are located at the places where their bodies were discovered. Natsuhi is in her room, Eva is in the VIP room, Kyrie is in Krauss' study, Rosa and Maria are in the parlor, and you (Battler) are in the guest room
+
+# Hideyoshi, George, Shannon, Kumasawa, and Nanjo are in the next room over
+
+-   Erika wants Battler to say "everyone else is in the cousin room"
+
+    > Weird. Why request it like this? Erika herself isn't in the cousin room, so it's not like Battler can say that.
+
+    > Let's think carefully. Even if we exclude Erika and Kinzo, is there anyone unaccounted for?
+
+    > ...No. Battler shouldn't have any issue saying this under that circumstance.
+
+-   Back in episode 3, the 18 names given at the end didn't match with the 18 people who actually existed, leaving room to add in an unknown person
+-   Erika is trying to avoid that.
+
+    > Remember! Kanon's name was revealed to us in this chapter. It's Yoshiya. There could be some gimmicks involving it.
+
+    > For example, I think it would be fair to confirm that Kanon is in the room while Yoshiya is not
+
+    ![she's right](assets/Umineko5to8_vggKKf0J7j.png)
+
+-   Battler has to remove any leeway for an additional person to exist
+
+# I acknowledge that everyone else is in the cousin room.
+
+> Wow, really?
+
+> That confirms everyone's alibis for this point in time. There's still the whole Shannon/Sayo thing... but I doubt that'll be an issue
+
+# The complete sealing of both the cousin room and the next room over has been guaranteed
+
+-   Cornelia wonders why this move is being made. Wouldn't it be more advantageous to the Humans if there are more people with unspecified locations?
+
+    > Maybe. But that's not really Erika's style right?
+
+    > She wants to know the truth. So having exact locations and alibis means she can very meticulously work things out
+
+-   Closed rooms are advantageous to wtiches, and disadvantageous to humans
+    > Not necessarily... true closed rooms offer certainty!
+-   Erika is denying the usage of the 11 people in the closed rooms
+-   Holing up in a single room is a simple but effective tactic against a witch
+-   Battler uses a knight/bishop analogy of cutting through enemy lines
+
+    > is someone within the rooms going to die without breaking the seal? That would be really easy to investigate
+
+    > Let's review. We believe that the six victims aren't actually dead. Their deaths were never confirmed in red, and since the closed rooms appeared to be perfect, that's our only option.
+
+    > Now, the 11 remaining survivors are split between two rooms as described before. The locks on the first floor of the guesthouse are perfect, and the entrace has a chain lock.
+
+-   Erika takes a flashlight and umbrella from the servant room
+-   She unsets the chain and exits, only to find a letter.
+
+    > AHAHAHAHAHAHA
+
+    > wonderful
+
+-   Letter wedged under the mat in front of the entrance
+
+    ![letter](assets/Umineko5to8_cFWITkWWC5.jpg)
+
+-   At the very end, after checking the locks and windows of the guesthouse, Erika confirmed that there was nothing at this spot
+    > The six are alive...
+-   Erika retroactively sealed a room
+    > I knew that was way too big of an advantage...
+-   Battler's guest room was sealed at the time of Erika's inspection of the corpses (earlier)
+
+    > So that means the seal must now be broken...
+
+    ![what is she getting at](assets/Umineko5to8_ozFGGwPUT5.jpg)
+
+    > This seems a little unfair...
+
+    > I mean, if Battler knew about the seal, he would have changed things up. What the hell
+
+    ![disaster incoming](assets/Umineko5to8_vb6LwQS1Ka.jpg)
+
+    > Disaster incoming...
+
+-   _Ange_: A logic error would be 'a trick that has become impossible'
+-   You can only have a magical result if it's something that could have been done without magic
+    > So in the case of the cup, a logic error would be Maria staring at it, yet candy still appearing anyway
+-   There are two types of magic: one where you just fucking Lie about something that wasn't observed, and one which is 'true magic', which is magic that matches some expected result.
+-   This second kind is where the process is obfuscated
+-   Only things that can be accomplished without magic can have a matching result
+-   The witch side cannot deny their own trick with the red. It's not possible
+
+    > Battler needs to immediately change his trick then?
+
+    ![throwback to that scary ass room](assets/Umineko5to8_2sIRao5V60.jpg)
+
+    > Might want to think about that terrifying room again. The red truth is making it exceedingly difficult for that person to escape, just like how it's harder for the witch to talk themself out
+
+-   Switching truths is an act only available to the Game Master, not necessarily all witches
+
+    ![a straightforward explanation of what it means for the two sides to match](assets/Umineko5to8_CQ6zxtVGpH.png)
+
+-   If the two sides cannot match because of the red, then we get a logic error, which destroys the game and results in the witch's defeat
+-   There is a way around this. Battler can just swap someone else in as the living person and keep the seals intact
+-   Of course, the seals need to break in order for his corpse to be moved...
+-   He just needs to change his move so the placement of the letter and Erika's seals don't contradict each other
+
+    > This could introduce other problems that fuck with the story...
+
+    > Wait so, Battler only now knows that the seals were placed. Does that mean they aren't broken?
+
+    > That's strange.
+
+    ![poor battler](assets/Umineko5to8_NbiBzSI9Kl.jpg)
+
+-   Erika now has a master key
+-   The seals are still on the door...
+    > BATTLER'S CORPSE WILL BE OBSERVED!!!!!!!!!
+
+# We have confirmed that the seals to the guest room are undamaged. Since the time Erika confirmed Battler's presence, this closed room has been preserved.
+
+> Battler is going to get out of this somehow...?
+
+![FREAK](assets/Umineko5to8_t3v9KOhN9T.png)
+
+-   Battler is going to make a move that cannot be taken back
+-   Erika... isn't looking for the culprit? Her enemy is Battler himself?
+    > She... wants to find a logic error?
+-   They have to make Erika think Battler vanished
+
+# I swear that I am impartial in my judgments.
+
+> thank u lambda <3
+
+-   Erika is looking for a logic error, since there seems to be absolutely no way for Battler to escape the room
+    > How the FUCK is he getting out of this
+-   Battler's going to make a bluff?
+
+    > Hehe... he's just like Kinzo
+
+    ![gambler motherfucker](assets/Umineko5to8_6fDp1pBpfa.jpg)
+
+-   Battler has no trick in mind... he's so fucked
+-   His body needs to be on the bed!
+-   Time will be frozen and they're going to fight
+
+---
+
+-   Start by checking if Battler's on the bed
+
+# Ushiromiya Battler is not on the bed
+
+# Knox's 3rd. It is forbidden for hidden passages to exist.
+
+# No hidden places that are impossible for Erika to find exist in the guest room.
+
+-   Erika searched the bedroom except for one place (deliberately)
+
+# Except for one location, there is no one to be seen in the bedroom
+
+-   Sound of water from bathroom, and a slight heat
+-   The shower was running, and Erika felt a resistance when opening it
+-   She gets owned by hot water
+-   The shower was cranked up and pointed at the door
+
+    ![womanlet](assets/Umineko5to8_q8Hcd17ZjY.jpg)
+
+    > Considering how tall Battler is, it seems safe to assume this is his doing
+
+-   She needs a tool to cut the wires holding everything in place
+-   Notices a bundle of wires and some nippers used to cut them at the bottom
+
+    ![LOL?](assets/Umineko5to8_E3Ffpsh2af.jpg)
+
+    > no way battler is going to be like "HAha I escaped from da room while u werebusy with SHower Gag"
+
+# No one was seen in the BATHROOM
+
+# except for one location, Battler does not exist anywhere inside the guest room
+
+-   That one location was the closet, just like Natsuhi
+-   They both claim they'll checkmate each other in two moves
+
+# Ushiromiya Battler does not exist within the guest room. There are no exceptions, including the closet.
+
+> Erika must have a counter to this. But I don't know what. OH NO
+
+# At this time, I immediately closed the door, reset the chain, and sealed this room
+
+> YOU CAN DO THAT?
+
+# Erika repaired the chain lock
+
+> ?????????
+
+# Erika used the packing tape to join the two cut ends of the chain together, 'sealing' them. In other words, the chain was repaired by the packing tape, and this room once again became a closed room locked from the inside
+
+> FUCK
+
+# The use of the packing tape wasn't limited by the number of strips. It was the number of rooms. She's free to use as much as she needs.
+
+-   Erika can use Battler's escape to solve most of the following crimes...
+-   If Battler can't find some logic that lets him escape the room, this will be a logic error
+
+    > He has no options right??? There's nothing to do here except leave
+
+    ![god this fucking song](assets/Umineko5to8_D7IYRwuCNs.png)
+
+-   _Lambda_: Sometimes, madmen leap into the path of death... and so miracles occur.
+
+# The lock caused by the chain is intact
+
+-   A logic error only occurs when the witch admits to it. If they can keep thinking of new logic, they cannot die
+-   **However, that would be like living in an endless living hell of the mind**
+
+    ![the ange callback](assets/Umineko5to8_xt3NjRgUMe.jpg)
+
+    > holy FUCKING shit
+
+-   In the final game, the true victor was Beato
+
+    > Huh???
+
+    ![erika going erika mode](assets/Umineko5to8_Ufsyr1hde4.jpg)
+
+    > WHAT IS HE GOING TO DO
+
+    ![AAAAAAAAAAGH](assets/Umineko5to8_D14hVq9BNS.png)
+
+    > ** WHAT DID HE DO??? ** WHAT DID HE DO!!!!!!!!!!!!
+
+    > GOLDEN TRUTH????
+
+-   _Battler_: In your game, if you believe, a miracle will always occur.
+
+    ![i am going to sob](assets/Umineko5to8_9WKhsSSyBr.png)
+
+    > i'm going to sob
+
+-   Battler "didn't let his thinking get trapped inside this closed room"
+-   HE SWAPPED PLACES WITH ONE OF THE OTHER VICTIMS???
+
+# USHIROMIYA KYRIE CANNOT SAVE BATTLER
+
+> H-huh???
+
+# Ushiromiya Natsuhi cannot save Battler.
+
+# Neither can Eva.
+
+![HUH???](assets/Umineko5to8_ef5hHU79FR.jpg)
+
+> How is she doing this???
+
+-   _Dlanor_: There is a certain action permissible only to humans without the detective's authority, and it becomes a truth of such overwhelming credibility that witches can raise it to the level of red truth.
+-   Erika... killed them herself????
+
+# Erika re-killed all of them
+
+# She severed their heads
+
+# All 5 WERE ALIVE UNTIL SHE KILLED THEM
+
+# nobody can save battler
+
+![this is so fucked](assets/Umineko5to8_DB2ikWspos.jpg)
+
+-   Lambda was once in that hell
+
+-   Battler... is stuck inside his own head
+
+    > ...the cathedral from the beginning of the episode.
+
+    > ...
+
+    ![...](assets/Umineko5to8_xvNVak6jiB.png)
+
+    > i can't do this anymore
+
+-   _Lambda_: When we're bored, we remember. If we don't keep throwing people into that hell... then the fear of that hell will overwhelm us...
+
+    > ...metaphor for the cycle of abuse? not even a fucking metaphor I CANT DO THIS
+
+-   _Lambda_: As long as you hold on to your 'certainty', your wishes will definitely come true
+
+    ![losing my fucking mind](assets/Umineko5to8_2Tc68O1BCt.jpg)
+
+    > So... she has to become her old self?
+
+---
+
+-   Why is a demon's game like this necessary? Why does love need to be tested?
+-   Again... the old Beatrice could have figured this out
+-   _Zepar_: They can figure it out if they have the miracle of love!
+
+    > Yeah yeah... without love it cannot be seen
+
+    ![my thoughts exactly, ange](assets/Umineko5to8_LRP0q1Ekl9.jpg)
+
+    > I'm on the same page. What does love have to do with any of this? Just having it doesn't really help...
+
+-   _Featherine_: Unless you think, the tale will not continue
+
+    ![wait, does she want an actual correct answer?](assets/Umineko5to8_VWdXv0SJVE.jpg)
+
+    > She doesn't want a correct answer per se, just... an answer.
+
+    > But... how? How can Battler escape that closed room? And what does it have to do with love?
+
+---
+
+-   Both Lambda and Bern were in logic error hell before
+-   In Bern's case, she wasn't even the game master. She was basically a monkey in the infinite monkey theorem
+-   _Lambda_: There are about 100 keys on a typewriter. What are the odds of typing away randomly and ending up with Hamlet?
+-   That hell was so long and harsh that her mind was completely broken. That's why she's so heartless
+
+    ![once again, the cycle of abuse](assets/Umineko5to8_Hnh7DRX8G5.jpg)
+
+    > so like, this is one of the biggest themes right? She's describing another cycle of abuse.
+
+    ![empathy, empathy, empathy](assets/Umineko5to8_5GZVq2gAgm.jpg)
+
+    > this... yeah. I sort of guessed as much back in episode 4, but... yeah.
+
+    > This also confirms some thoughts I had about how like... a witch's potential is proportional to their suffering
+
+-   Bern's hell could be escaped with a miracle
+-   Lambda's hell could be escaped with certain willpower
+    > How can Battler escape his hell?
+-   Erika... compares her own suffering to theirs. She implies that her hell required her to withstand the truth, which they couldn't do
+    > I think you're just miserable... whatever truth you faced was probably self-inflicted
+-   Bern **never** wants to be reminded of her past
+
+    > This alone is probably evidence that Erika--
+
+    > Oh.
+
+    > She lacks love. Or more specifically, empathy. Someone who has suffered comparably would probably immediately understand how fucking Stupid it would be to say that to Bern
+
+    ![what is wrong with you](assets/Umineko5to8_yyrIDQnK2j.png)
+
+    > Erika I love you but PLEASE kill yourself Please Please PLEEASSEEEE kill yourself
+
+-   Bern wants to give the territory to Erika, but she needs to marry Battler for that
+
+    ![she kind of cums after this](assets/Umineko5to8_0orFqrf58s.jpg)
+
+-   Erika is reveling in being the homewrecker this time
+
+    > You have issues
+
+    > Strangely... the game is saying that his **heart** is trapped in the closed room he created.
+
+    > Is it not his mind? What interesting wording.
+
+-   _Zepar and Furfur_: You can't see the answer... because you don't have enough love!
+
+    > OH COME ON
+
+    ![big sis beato is annoyed](assets/Umineko5to8_okOXoowriv.jpg)
+
+-   Shannon and Kanon are going to duel
+-   Apparently... this wasn't unexpected. This day could have been avoided though?
+-   They are given a pair of dueling pistols with one magical bullet each
+-   _Beatrice (old)_: A duel over love is usually a fight between two people both in love with the same single person. However, here we have a pair of lovers fighting another pair of lovers. This is odd.
+    > I think the inversion makes more sense if we um. Consider them to be the same person. Y'know
+-   The minimum number of people needed to create a universe is two.
+
+    > Ah... that's why Erika needed to marry Battler...
+
+    > ...is that part of the closed room solution? Battler isn't alone. It takes at least two people to make a hellish universe like that
+
+-   That number is 19!
+-   The number of the witch
+-   The number of years needed to create this tale
+-   The number of years it took to reach this unavoidable day
+-   And it was... the age of the true territory lord of this world.
+
+    ![it would have been better if we died](assets/Umineko5to8_63slDMOHTM.jpg)
+
+    > what... do they mean?
+
+    > oh. They're the culprits?
+
+-   It's today. October 5th, 1986. The fated day. The day that one of us will die.
+
+-   To me, you are...
+
+    ![to me, you are](assets/Umineko5to8_drfPyQdkSw.png)
+
+-   The intent to kill flashed through the eyes of both
+-   Why does this need to happen? It was a mystery. As great a mystery as the question of how this could be the key towards unlocking Battler's closed room
+
+---
+
+-   _Gaap_: I can say for certain that it's impossible to escape from the inside on one's own.
+-   Gaap says we need to break open the closed rooms of the guesthouse
+-   Closed rooms formed by packing tape are not impossible to break
+-   _Gaap_: Seals = closed room is wrong
+-   Erika only verified the status of the seals on the doors
+
+    ![ah, right, the windows](assets/Umineko5to8_a5zY8xJgaV.jpg)
+
+    > That seems too easy. Dlanor also left with a grin...
+
+# The window seals were also intact. Of course this is at the time of the logic error.
+
+> She didn't specify if the seals on the other room were also intact...
+
+# It is forbidden for blue truth to be used if based on the argument that the window seals of the next room over were torn at the time of the logic error
+
+# The opposing side is under no obligation to respond to the aforementioned blue truth
+
+> Shannon killed Kanon and they became one? Then they took their new name and left the room before it was sealed? Idk
+
+-   _Featherine_: One move exists. However, that move is one that can never be used again. And, it is also part of Beato's heart.
+
+    ![is it finally time?](assets/Umineko5to8_vrORbm9LuZ.png)
+
+-   ...There does exist a trick that can save Battler. But it's tough. And if it's used, part of Beato's heart will be exposed.
+-   Bern doesn't think Battler will figure it out because of that
+-   Huh... Beato was clutching the ring at the end of episode 5
+
+    ![kinda hot](assets/Umineko5to8_RCnluLxuL2.jpg)
+
+    > hm. Much to think about
+
+-   What follows is very unpleasant and uncomfortable
+
+---
+
+-   Beato still didn't understand the duel
+-   The love between George and Shannon wasn't standing in the way of the love between Jessica and Kanon
+    > this music is murdering me again
+-   Furniture and a human do not add up to two people
+
+    ![...they're the same person aren't they](assets/Umineko5to8_SChs79q4OW.jpg)
+
+-   To be qualified to love a human, you need only one thing. The possession of a single person's soul.
+    > They're the same person aren't they?
+-   Let the sinful souls regain a complete soul and become capable of true love
+    > ...Yeah.
+-   This marks... the birth of a Human who can truly love another.
+-   Their days as furniture will end
+    > They're analogous to the Beatos as well...
+-   Shannon **fell to the ground** before Kanon fired, dodging his shot
+
+    > Hehehe...
+
+    > Ahahaha... it's just like the times she faked her own death! It's just like the first twilight of episode 3! And the first twilight of episode 1!
+
+-   It's all coming down to luck...
+-   _Shannon_: Our reunion could have been avoided entirely...
+
+    ![i knew it](assets/Umineko5to8_bUoqxus5YA.png)
+
+-   Gather, incomplete souls! Become one and know love!
+-   Beato and Kanon begin to disappear
+
+    ![NOOOO](assets/Umineko5to8_re4qnIo8h6.jpg)
+
+-   Beato was born for the purpose of loving Battler... but she can no longer do that
+-   _Beato_: I don't know why. I don't know why I started to love him
+-   _Beato (old)_: People don't need a reason to love each other!!
+-   _Beato_: Why is it that I love Battler...? ...'Mother'?
+
+    ![...](assets/Umineko5to8_FBqIj2tzqk.png)
+
+# Beatrice. Listen. I am giving you my love for Ushiromiya Battler. Become the kind of woman Battler wants.
+
+# Take the golden hair he likes. Take the blue hair he likes. Take this personality that matches his. And then... you must love him in my place. And then, if possible, you must be loved by him.
+
+# I... can no longer love him. Please, take my feelings that went unfulfilled, my feelings that I couldn't hold back, and make my wish come true.
+
+# From this day forward, you are no longer the Rokkenjima ghost that lives only to play pranks. From this day forward, you will become the master of this island and wait for the day that he comes to fulfill his promise.
+
+# From this day forward, you will no longer be me. Please forgive me for pushing all of my worries onto you, while I alone try to find happiness.
+
+![i'm breaking down](assets/Umineko5to8_kT0AgdZgxW.png)
+
+# A witch is... not the one who solves puzzles
+
+![thats your opponents job](assets/Umineko5to8_OcGrocLmxy.png)
+
+-   Don't worry about how Battler got out of the closed room. You need to create a much more spectacular, ultimate closed room, and make it so that they're the ones worrying
+
+    ![IS SHE BACK???](assets/Umineko5to8_3G3kXle2Yo.png)
+
+    > Are they... going to use Kanon's disappearance to continue the game?
+
+    > Battler can escape and let that be the ultimate riddle...
+
+# IM GOING TO SOB
+
+![SHES BACK!!!!!!!!](assets/Umineko5to8_5ErGSCk3jq.jpg)
+
+# She knows what it means to be the main character.
+
+-   Kanon dashes into the mansion, remembering the good sides of everyone
+-   It would have been fine to find reasons for our love later
+-   _Kanon_: Battler, it's okay. I'm going to save you now.
+
+    ![debt?](assets/Umineko5to8_kXPnXSQAjV.png)
+
+# The one who rescued Battler was, without a doubt, Kanon.
+
+# Battler and Kanon are different people.
+
+# The cousin room is guaranteed to be a perfect closed room until the end
+
+# At the time the next room over was sealed, Hideyoshi, George, Kumasawa, Shannon, and Nanjo were in it. And the number of people in the next room over was five. No one else existed there. All people can only go by their own names.
+
+> Is she going to seal Erika inside the closed room?
+
+> It requires one sacrifice
+
+# At the time Battler was rescued, only Kanon entered the guest room
+
+# Kanon does not exist in the guest room. Of course, this includes all parts of the closet, the bedroom, and the bathroom
+
+-   _Erika_: Now... at the end... I'd like to finally... introduce myself...
+
+    ![lmfao](assets/Umineko5to8_Y6Owcj9BXU.jpg)
+
+# I'm Furudo Erika, the detective! I may be an uninvited guest, but please, welcome me!
+
+# I'm the visitor, the 18th human on Rokkenjima!
+
+# Sorry, but... even if you do join us-
+
+# That makes 17 humans.
+
+> THERE IT IS!!! I WAS RIGHT!!!
