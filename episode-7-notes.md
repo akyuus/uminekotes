@@ -13,7 +13,7 @@
 7. What happened to the mansion and the guesthouse?
 8. What was Battler's sin?
 9. (Most likely linked to #3) What's the motive behind the murders?
-10. Who **is** Beatrice? **What** is Beatrice?
+10. ~~Who **is** Beatrice? **What** is Beatrice?~~
 
 ---
 
@@ -448,3 +448,115 @@
 -   Even the voice resembled Battler's...
     > Hmm... the Kinzo/Battler parallels are very deliberate, but I'm not sure what message they're trying to communicate. The cyclical nature of what happened?
 -   Kinzo didn't want to succeed the headship
+
+# [1-9-2023]
+
+> apawlogies for not playing for like 5 days i've been getting annihilated by adhd and general mental illness
+
+> we're back tho
+
+-   Time to delve into Kinzo's backstory, and where the original Beatrice came from
+-   Kinzo was selected as the new Head, despite not wanting the position
+-   Purely because of polydactyly
+
+    ![different in lion's case](assets/Umineko5to8_r44WrzQ1Zj.png)
+
+-   _Kinzo_: It lasted for so long, that span of gray days. That dizzying stretch of time I spent dead, like moss growing on a rock...
+-   That span lasted for a full 20 years
+    > Seems like an ideal environment for a witch to be born... or I guess in Kinzo's case, a sorceror
+-   Kinzo basically spent a quarter of his life as a puppet
+
+    ![goldfinger superman](assets/Umineko5to8_mHVnWrn4Bn.png)
+
+    > Almost makes me feel bad for him
+
+-   Kinzo was forced into a marriage, and had some kids that he didn't care about
+
+    > Not unlike Natsuhi and Kasumi
+
+    > I'm assuming Beatrice gave him a new lease on life, and there's probably some parallel that can be drawn between him and whoever the merged self is
+
+-   _Will_: Living means having your own will. You were probably dead during that time.
+
+    > A George parallel too.
+
+    > And Ange.
+
+    ![that's rough buddy](assets/Umineko5to8_O42ZW8XBoa.png)
+
+-   Kinzo met Beatrice on Rokkenjima, where there was a large cave suitable for housing a submarine base
+    > Wonder if this cave will get brought up again
+-   The project was abandoned, and Kinzo was basically left guarding a useless cave
+
+    > So much for dying
+
+    ![this is where he meets beatrice?](assets/Umineko5to8_Vc13SXkHnz.png)
+
+---
+
+> Oh hey, it's the cave from the title screen. I was wondering what that was...
+
+-   Kinzo didn't fear death, so he felt no anger whatsoever
+
+    > Is that one of the backgrounds from the episode 4 prison escape?
+
+    > Is the well connected to the cave?
+
+-   Lieutenant asks if Kinzo can be an interpreter between him and an Italian
+    > whoa mamma mia i cooka da pizza
+-   An RSI submarine arrived on Rokkenjima (italian)
+-   Something important was in the sub
+
+    ![BEATO](assets/Umineko5to8_e8WvWqzzVe.png)
+
+    > THERE SHE IS
+
+-   Most of the crew is dead, Beatrice is the only English-speaker left
+-   She was the daughter of a high-ranking RSI official, and he died on the submarine
+-   Why did they come to Japan?
+-   Only about 10 of the 60 sailors survived
+
+    ![sadge](assets/Umineko5to8_mHVnWrn4Bn.png)
+
+-   Beatrice was also from a noble family, and she could tell that Kinzo was as well from the gloomy look on his face
+-   The remnants of the submarine base still exist near Kuwadorian
+
+    > Evidently what I said before is correct. The well is connected to the base and the base is connected to Kuwadorian
+
+    ![jinzo](assets/Umineko5to8_gkDEOKBur1.png)
+
+-   Two mansions, two families
+-   Lieutenant Angelo?
+-   The cargo was 10 tons of gold
+    > So that's where it came from
+-   Nobody knew what the gold was for, or what it came from
+-   Apparently the gold was going to be preserved because the course of the war could not be stopped at this point
+-   Lieutenant Angelo doesn't want the current puppet government to find out about the gold
+    > So moving it was to preserve it
+-   There is no way to move this gold off Rokkenjima without Italy finding out
+-   Intense debate
+-   Kinzo miraculously survives the massacre and kills Yamamoto
+
+    ![this is a good line](assets/Umineko5to8_d75vvhMyd8.png)
+
+-   The doctor on Niijima was Nanjo
+-   Kinzo lived with Beatrice in Odawara for a few years, they had a kid, and Beatrice died
+-   The one-winged eagle crests were just the result of a bad wartime press
+
+---
+
+-   All the Beatrices so far weren't actually killed. We're trying to figure out where the word 'killed' factors in
+    > Killed as in, who figured out the truth? When did the legend die?
+-   They decide to question Maria, since she knows the most about the legend Beatrice
+-   Will wonders where Battler is
+    > Same here dude
+-   Battler is unneeded to figure out the story
+
+    ![no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way?](assets/Umineko5to8_1nychMJIZv.png)
+
+    > little sister abuse? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way? no way?
+
+    > sorry
+
+-   Maria's lack of a father caused her to lose her sense of self
+-   She regained it with the fucking story about the virgin mary
